@@ -1,9 +1,10 @@
 # Site settings
 title: The Mechanism Collection
-email: your-email@domain.com
-description: "The Mechanism Collection. A creation myth by Kyle Tolle."
+email: kyle@nullsix.com
+description: "A creation myth by Kyle Tolle."
 baseurl: ""
 url: "http://themechanismcollection.com"
+username: kyletolle
 
 # Build settings
 markdown: kramdown
