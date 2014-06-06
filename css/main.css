@@ -60,6 +60,18 @@ a:visited { color: #205caa; }
   background-color: white;
 }
 
+.site-header .the {
+  text-transform: uppercase;
+  display: block;
+  color: #333;
+  font-size: .25em;
+  line-height: 12px;
+  position: relative;
+  z-index: 1;
+  text-align: center;
+  padding-top: 2em;
+}
+
 .site-title,
 .site-title:hover,
 .site-title:visited {
@@ -67,8 +79,7 @@ a:visited { color: #205caa; }
   display: block;
   color: #333;
   font-size: 4em;
-  letter-spacing: -1px;
-  line-height: 112px;
+  line-height: 48px;
   position: relative;
   z-index: 1;
   text-align: center;
