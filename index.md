@@ -195,6 +195,18 @@ given chance to sit, stew, spoil. That pristine music made with the remains of
 the Cataclysm turned instrumental. The known universe trembling to its very
 being with the message it carries and endures; enacts and surely _is_.
 
+#### Leftovers
+
+- The Song always continues
+- Small changes occurred that built on one another.
+- Further progression and the Song rose to a high order.
+- On a small number, the energy of the Song shifted, and the ripples focused
+  and intensified.
+- Ripples that spread, intermingled, and focused the intensities of the shift.
+- Little seafoam creatures riding currents in, on, and above the planets.
+- Pieces of foam sinking. Jetsam airborne. Floatsam tossed upon the shore.
+- Those ripples spreading and meeting and finally focusing in the foam.
+
 ---
 
 ## The Fourth Mechanism
