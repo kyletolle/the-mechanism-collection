@@ -56,14 +56,20 @@ the All to the Ruin of the strings. And thus erupted and was born the Void.
 
 ### Arise and Organization of Elemental Bits
 
+###### Waiting on the Third.
+
 ---
 
 ## The Third Mechanism
 
 ### Covering of the Inanimate
 
+###### Currently being drafted.
+
 ---
 
 ## The Fourth Mechanism
 
 ### Reclamation
+
+#### The Fourth Has Begun
