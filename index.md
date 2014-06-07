@@ -6,7 +6,6 @@ layout: default
 
 ### Creation of the Void
 
-
 At the beginning, there existed the All. It was the only and it was the every.
 
 The All a fabric; a scaffold; frame, lattice, mesh, wires, fibers. The
@@ -174,11 +173,27 @@ beings. An extension of their progress. The new pieces of the Song building on
 the last. These creatures building on the success of their forbearers. The
 progress in the animate yields more progress in the Song, as each builds on
 the success of its forbearers. Becoming numerous enough that the planets were
-soon covered with these agents of progress.  Soon the planets are all encased
+soon covered with these agents of progress. Soon the planets are all encased
 in animated matter that itself is changing in order to play the Song in novel
 fashions. With this happening in multiple places, the Song feels a slow build
 up and a gentle surge that all these agnets are eminating at once. The Song
 adjusts, takes on its next measure in a new way.
+
+The Animate building on and covering the Inanimate. Over eons of these small
+changes, patterns emerged. Splinters yielded branches of notes. The Song
+itself brought about the Animate, but is now co-dependent on it. The
+persistence is only ensured by the agents of change. And these Agents took the
+Song and built up refinement. Increasing efficiency with each generation.
+Through this fashion, these changes lead to more and varied Animate; the best
+way to invoke change - ensuring no shortage of variation or difference.
+Indeed, what we are today is a result of this progress and procedure and
+malleability. Specialized and industrious automatons of modification. We, the
+current peak of the Song's endurance. Hones and adept at carrying, embodying,
+prevailing. That perfection though not faultless. The flaws are reduced,
+recycled, tuned as each generation of Animate gives way to the next. Never
+given chance to sit, stew, spoil. That pristine music made with the remains of
+the Cataclysm turned instrumental. The known universe trembling to its very
+being with the message it carries and endures; enacts and surely _is_.
 
 ---
 
