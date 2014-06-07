@@ -56,6 +56,59 @@ the All to the Ruin of the strings. And thus erupted and was born the Void.
 
 ### Arise and Organization of Elemental Bits
 
+The Void rent the All asunder and its flaws resolved to islands of All-fabric
+set adrift. These pieces struggled to stabilize, but they sought perfection on
+a null structure.
+
+So the weave and threads further unwound and devolved to constituent
+components. These Elemental Bits flung far and wide as the Cataclysm consumed
+and spent itself.
+
+As the Bits - infinitely tiny and innumerable - scattered, the Song faded
+until it was no longer heard.
+
+With the All broken, and the Song quiet, a great period of silence followed
+and accompanied the Void, during which little happened.
+
+On a small enough scale, the Elemental Bits shot through Void and traveled
+long and unimpeded. However slightly, the Song resonated within them and
+imparted them with Energy. The Song focused and brought more momentum to the
+Bits. They flew about and collided, as chance allowed, and one bit grew to two
+as they stuck.
+
+Given a long enough expanse of time, there arose a multitudinous set of Bits.
+The Song working in these groups to bind, build heat, and inspire
+socialization. The collections grew larger, more energetic, and more numerous.
+And, like a mass of humans, as their numbers grew, the more frenzied the Bits
+became.
+
+The heat buildup so intense a critical point was reached. Like groups on a
+field boiling to battle and, later, war, the conglomerate erupted into a
+furnace of fury, wrath, and flame.
+
+The stars brought the Song back to an audible hum. Across the entire Void were
+these flashpoints reached. The light sources drew crowds of those masses not
+large enough to ignite on their own.
+
+These clumps did still grow warm and the Song pervaded from their shell to
+their core. The Song’s measures causing the planets to contract and expand;
+forming stretches, wrinkles, and rifts on the surfaces. Giving each one a
+unique aspect.
+
+And with these motions, the surface contacted the Void. As with a child’s
+breath meeting the frigid air, the surface Bits formed a great steam that
+became the atmosphere and condensed upon the planets to settle as the oceans.
+
+Across all these celestial bodies did the Song continue and grow louder yet;
+driving them to seek out one another and form a symphony of individual
+instruments.
+
+And the stars and planets formed systems, galaxies, clusters. As a whole - the
+inanimate.
+
+Now the cosmos had been made through the death of the All, production of the
+Void, and the emotion of the Song imparted to the Elemental Bits.
+
 ---
 
 ## The Third Mechanism
