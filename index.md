@@ -147,6 +147,39 @@ the Song; drawing in further energies and Elemental Bits, as a bellows, and
 these ingredients reacted there in the crucible. Forming a new chord that
 modified the undertones of the Cosmos.
 
+The one trait of the Song is that it persists and it imparted that essential
+quality of progress on the foam. This form took the inanimate and imparted
+upon it action and maturation. Its one quality that it continued to change,
+but in ways according to its own design. The animate. The Song has influenced
+the Elemental Bits and they have taken that Song and morphed it. And we see
+that these bits in the foam are not only consequences and reactionary. The
+Song changed of its own accord, but now the animate changes the Song to keep
+the tune from settling. A force of their own to tune, adjust, and modify. Each
+piece playing its own way. They have an ability to synthesize and modify and
+produce change in a way impossible until now. These beings a furnace of the
+Song and a crucible for its progress. The centers being self-sustaining and
+revitalizing. Each second brings greater motion to the empowered entities.
+With the furnaces enacting modification, each second brought greater motion to
+these Song-empowered entities and more foam yet accumulated from the breaching
+of the waves on the sands. The tumult and its turmoil thrashing energies and
+melodies. Some beings attracted other foam and yet others fled company. Each
+being shaping the song differently and progressing itself in a similar manner.
+And their reproduction and progression of the Song continued to differentiate
+each being or group of creatures from those both near and far. This
+reproduction within one area looking vastly different from that in another, be
+it near or far. And they then bring about more of their own, but refined in
+slight ways.  Some incorporating other animate, some these new harmonies; all
+fluctuating and forging new graces of the Song. From these furnaces arose new
+beings. An extension of their progress. The new pieces of the Song building on
+the last. These creatures building on the success of their forbearers. The
+progress in the animate yields more progress in the Song, as each builds on
+the success of its forbearers. Becoming numerous enough that the planets were
+soon covered with these agents of progress.  Soon the planets are all encased
+in animated matter that itself is changing in order to play the Song in novel
+fashions. With this happening in multiple places, the Song feels a slow build
+up and a gentle surge that all these agnets are eminating at once. The Song
+adjusts, takes on its next measure in a new way.
+
 ---
 
 ## The Fourth Mechanism
