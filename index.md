@@ -147,9 +147,13 @@ thrashing energies. Each piece playing its own way.
 More foam accumulating from the breaching of waves upon sands. Each being
 shaping the Song differently and progressing itself in a similar manner. Some
 incorporating other animate, some new these harmonies; all fluctuating and
-forging new graces of the Song. From these furnaces arose new beings.
-A slight extension of their progress. Creatures building on the success of their
-forebearers. This reproduction of progression within one area vastly different from that elsewhere.
+forging further graces of the Song. From these furnaces arose new beings. A
+slight extension of their progress. Creatures building on the success of their
+forebearers. This reproduction of progression within one area vastly different
+from that elsewhere.
+
+Soon the planets were encased in the Animate. Changing itself to play the Song
+in novel fashions.
 
 
 The one trait of the Song is that it persists.
