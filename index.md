@@ -69,29 +69,28 @@ until it was no longer heard.
 With the All broken, and the Song quiet, a great period of silence followed
 and accompanied the Void, during which little happened.
 
-On a small enough scale, the Elemental Bits shot through Void and traveled
-long and unimpeded. However slightly, the Song resonated within them and
-imparted them with Energy. The Song focused and brought more momentum to the
-Bits. They flew about and collided, as chance allowed, and one bit grew to two
-as they stuck.
+The Elemental Bits shot through the Void and traveled long and unimpeded.
+However slightly, the Song resonated and focused and pulsated within them;
+imparting the Bits Energy and increasing their momentum. They flew about and
+collided, as chance allowed, and one bit grew to two as they struck and stuck.
 
-Given a long enough expanse of time, there arose a multitudinous set of Bits.
+Over an incalculable expanse of time, there arose a multitudinous set of Bits.
 The Song working in these groups to bind, build heat, and inspire
 socialization. The collections grew larger, more energetic, and more numerous.
 
-A frenzy. The heat buildup so intense it reached a critical point. The
-conglomerate erupted into a furnace - collapsed, bound, and inseparable.
+A frenzy. Heat buildup so intense it reached a critical point. A conglomerate
+erupted into a furnace - collapsed, bound, and inseparable.
 
-The stars brought the Song back to an audible hum. Across the entire Void were
-these flashpoints reached. The light sources drew crowds of those masses not
-large enough to ignite on their own. Luminescence poured out to those
-fledgling spheres which drew near and orbited.
+The stars brought the Song back to an noticeable hum. Throughout the entire
+Void were these flashpoints reached. The light sources drew crowds of those
+masses not large enough to ignite on their own. Luminescence poured out to
+those fledgling spheres which drew near and orbited; the planets.
 
-The pitch of the Song shifted and the planets reacted. The Song's measures
-caused the planets to expand and contract; forming stretches, wrinkles, and
-rifts on the surfaces. Giving each a unique aspect.
+The pitch of the Song shifted and the satellites reacted. The Song's measures
+expanded and contracted the planets; forming stretches, wrinkles, and rifts on
+the surfaces. Giving each a unique aspect.
 
-The Song pervaded from their shell to their core and the clumps did still grow
+The Song pervaded from shell to core and the clumps did still grow
 warm. At their boundary, where the planets and Void met, the surface Bits
 formed a great steam. And so the planets gained their atmospheres.
 
