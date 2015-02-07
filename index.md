@@ -64,13 +64,13 @@ constituent components. These Elemental Bits flung far and wide as the
 Cataclysm consumed and spent itself.
 
 As the Bits - infinitely tiny and innumerable - scattered, the Song faded
-until it was no longer heard.
+from perception.
 
 With the All broken, and the Song quiet, a great period of silence followed
 and accompanied the Void, during which little happened.
 
 The Elemental Bits shot through the Void and traveled long and unimpeded.
-However slightly, the Song resonated and focused and pulsated within them;
+However slightly, the Song resonated and pulsated and focused within them;
 imparting the Bits Energy and increasing their momentum. They flew about and
 collided, as chance allowed, and one bit grew to two as they struck and stuck.
 
@@ -81,7 +81,7 @@ socialization. The collections grew larger, more energetic, and more numerous.
 A frenzy. Heat buildup so intense it reached a critical point. A conglomerate
 erupted into a furnace - collapsed, bound, and inseparable.
 
-The stars brought the Song back to an noticeable hum. Throughout the entire
+The stars brought the Song back to a noticeable hum. Throughout the entire
 Void were these flashpoints reached. The light sources drew crowds of those
 masses not large enough to ignite on their own. Luminescence poured out to
 those fledgling spheres which drew near and orbited; the planets.
@@ -97,7 +97,7 @@ formed a great steam. And so the planets gained their atmospheres.
 Across all these celestial bodies did the Song resonate and grow louder yet;
 driving them to seek out one another and form a symphony of individual
 instruments. And the stars and planets formed systems, galaxies, clusters. As
-a whole - the inanimate.
+a whole - the Inanimate.
 
 Now the cosmos had been made through the death of the All, production of the
 Void, and the emotion of the Song imparted to the Elemental Bits.
