@@ -38,7 +38,7 @@ corrected to precision was the weakness that spawned the Cataclysm. The power
 of the Song exceeded the capabilities of the All.
 
 Heaving and failure birthed a rift - the slightest of tears - which severed
-the All and filled it with imperfection. A regression of the whole inflicted
+the All and gaped in flaw. A regression of the whole inflicted
 by a shudder of the evolutionary advance.
 
 A cord snapped. Tension on it from every direction and angle multiplying in
