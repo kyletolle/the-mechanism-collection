@@ -99,7 +99,7 @@ driving them to seek out one another and form a symphony of individual
 instruments. And the stars and planets formed systems, galaxies, clusters. As
 a whole - the Inanimate.
 
-Now the cosmos had been made through the death of the All, production of the
+Now the Cosmos had been made through the death of the All, production of the
 Void, and the emotion of the Song imparted to the Elemental Bits.
 
 ---
