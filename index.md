@@ -116,84 +116,80 @@ combined, compounded, compressed and the Inanimate pulsed with the progression
 of the Song.
 
 This refinement lead the planets to tremor. Starting in their oceans ripples
-which harmonized, focused, intensified. Building to waves that overlapped
+which blended, intermingled, intensified. Building to waves that overlapped
 and peaked and troughed and broke upon the shores. Whitecaps spreading as the
 oceans writhed and churned. Spitting plumes of spray and foam that caught in
 the wind, drifted across the creaking lands, and settled once the breezes
 failed. The sea foam stuck and joined and formed islands that drifted and
-wandered wide. The ripples and foam of the waters traveled together as
-embodiments of the Song, soon covering surfaces of entire planets.
+wandered wide. The ripples and foams traveled together as embodiments of the
+Song; soon covering surfaces of entire planets.
 
-The Song percolated through the atmospheres - with the starlight - to drip
+The Song percolated through the atmospheres - with the starlight - and dripped
 into the sea foam. The froth shielding it; compacting it to its core;
 internalizing it. This core buzzed and hummed with intensity until the spark
 was hit and spontaneity begot revitalizing energy.
 
-At first, just a single instance of this - life. Then it flared throughout
+At first, just a single instance of this. Life. Then it flared throughout
 these cauldrons as an uproar. Forming a new chord in the Song that modified
 the undertones of the Cosmos.
 
-The Song's most undeniable trait imparted upon the foam. Forged through the
-Song and now aware of it. More than foam - beings. Progress now action,
-according to its own design. The Animate.
+The Song's most undeniable trait imparted upon the foam. Persistence. Forged
+through the Song and now aware of it. More than foam - beings. Progress now
+action, according to its own design. The Animate.
 
 These beings furnaces of the Song, drawing in the music and frenzy which
 reacted there in the crucible. These agents neither consequence nor reaction.
 A force of their own to tune, adjust, and modify. Persistence. The Song had
-always refined itself. Yet the animate surged and these empowered entities
+always refined itself, yet the Animate surged and these empowered entities
 synthesized and effected change as yet impossible. The tumult and its turmoil
-thrashing energies. Each piece playing its own way.
+thrashing energies. Each piece playing its own way, yet accompanying all
+others.
 
-More foam accumulating from the breaching of waves upon sands. Each being
-shaping the Song differently and progressing itself in a similar manner. Some
-incorporating other animate, some these new harmonies; all fluctuating and
-forging further graces of the Song. From these furnaces arose new beings. A
-slight extension of their progress. Creatures building on the success of their
-forebearers. This reproduction of progression within one area vastly different
-from that elsewhere.
+More foam accumulated as waves breached upon sands. And more sparked and
+lived. Each being shaped the Song and progressed in its own manner. Some
+incorporated other Animate, some these new harmonies; all fluctuated and
+forged further graces of the Song.
 
-Soon the planets were encased in the Animate. Changing itself to play the Song
-in novel fashions.
+And the Animate spawned new beings; slight extensions of their progress.
+Creatures built on the success of their forebears. The reproduction of
+progression in one area vastly different from that elsewhere.
 
+Soon the planets were encased in the Animate, deluged in starlight, and the
+Song morphed as its instruments strummed and beat in novel fashion. Never
+settling, and now quickening, the Song rang through the atmospheres and oceans
+as the Animate let loose its calls.
 
-The one trait of the Song is that it persists.
-The Song has influenced the Elemental Bits and they have taken that Song and morphed it.
-The Song changed of its own accord, but now the animate changes the Song to keep the tune from settling.
+'Twould be heard.
 
-The progress in the animate yields more progress in the Song, as each builds on the success of its forbearers.
-Becoming numerous enough that the planets were soon covered with these agents of progress.
-Soon the planets are all encased in animated matter that itself is changing in order to play the Song in novel fashions.
-With this happening in multiple places, the Song feels a slow build up and a gentle surge that all these agents are emanating at once.
-The Song adjusts, takes on its next measure in a new way.
-The Animate building on and covering the Inanimate.
-Over eons of these small changes, patterns emerged.
-Splinters yielded branches of notes.
-The Song itself brought about the Animate, but is now co-dependent on it.
-The persistence is only ensured by the agents of change.
-And these Agents took the Song and built up refinement.
-Increasing efficiency with each generation.
-Through this fashion, these changes lead to more and varied Animate; the best way to invoke change - ensuring no shortage of variation or difference.
-Indeed, what we are today is a result of this progress and procedure and malleability.
-Specialized and industrious automatons of modification.
-We, the current peak of the Song's endurance.
-Honed and adept at carrying, embodying, prevailing.
-That perfection though not faultless.
-The flaws are reduced, recycled, tuned as each generation of Animate gives way to the next.
-Never given chance to sit, stew, spoil.
-That pristine music made with the remains of the Cataclysm turned instrumental.
-The known universe trembling to its very being with the message it carries and endures; enacts and surely _is_.
+Just as the planets were engulfed by the numerous Animate and shook with
+leivity, the Song was overwhelmed with resonance, harmonics, reiteration; and
+its substance heaved with change. The Song adjusted and took on its next
+measure.
+
+Eons and ages wheeled, elapsed, were. The agents emanating and throwing forth
+their Song-hails. Splintering and fracturing yielded branches of the unique,
+but patterns emerged. And though it brought forth this Animate, the Song
+became co-dependent. Persistence and progress plied across generations by the
+Animate's amendments. A guarantee of neoteric variation set into the bones of
+the Cosmos through the swells of the Song.
+
+The Inanimate buried by the Animate beneath its refinements and children. The
+specialized and industrious machinery of modification. Indeed, we today are
+the result of this procedure and malleability. Honed and adept at carrying,
+embodying, prevailing. We, the current peak of the Song's endurance, though
+not faultless. Soon to be surpassed and our flaws reduced. Never given chance
+to sit, stew, spoil. Rising to higher order.
+
+That pristine music made with the remains of the Cataclysm turned
+instrumental. The known universe trembling to its very being with the message
+it carries and endures; enacts and surely _is_.
 
 #### Leftovers
 
-- The Song always continues
-- Small changes occurred that built on one another.
-- Further progression and the Song rose to a high order.
 - On a small number, the energy of the Song shifted, and the ripples focused
   and intensified.
-- Ripples that spread, intermingled, and focused the intensities of the shift.
 - Little seafoam creatures riding currents in, on, and above the planets.
 - Pieces of foam sinking. Jetsam airborne. Flotsam tossed upon the shore.
-- Those ripples spreading and meeting and finally focusing in the foam.
 
 ---
 
