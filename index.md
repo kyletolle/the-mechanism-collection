@@ -108,22 +108,23 @@ Void, and the emotion of the Song imparted to the Elemental Bits.
 
 ### Covering of the Inanimate
 
-Another change to the Song, and even the atmospheres were moved and condensed.
-The motion began the rains which settled on the planets as oceans. A glaze
-which absorbed the measures of the Song and captured the energy of the stars.
-These forces combined, compounded, compressed and the Inanimate pulsed with
-the progression of the Song.
+The Song changed again to match its growing orchestra and this adaptation
+moved the atmospheres to condense. The motion began the storms and rains and
+downpours which settled on the planets as oceans. A glaze which absorbed the
+measures of the Song and captured the energy of their stars. These forces
+combined, compounded, compressed and the Inanimate pulsed with the progression
+of the Song.
 
 This refinement lead the planets to tremor. Starting in their oceans ripples
-which harmonized, focused, and intensified. Building to waves that overlapped
+which harmonized, focused, intensified. Building to waves that overlapped
 and peaked and troughed and broke upon the shores. Whitecaps spreading as the
 oceans writhed and churned. Spitting plumes of spray and foam that caught in
 the wind, drifted across the creaking lands, and settled once the breezes
-failed. The sea foam stuck and built and formed islands that drifted and
+failed. The sea foam stuck and joined and formed islands that drifted and
 wandered wide. The ripples and foam of the waters traveled together as
-embodiments of the Song, to eventually cover the surfaces of entire planets.
+embodiments of the Song, soon covering surfaces of entire planets.
 
-The Song percolating through the atmospheres - with the starlight - to drip
+The Song percolated through the atmospheres - with the starlight - to drip
 into the sea foam. The froth shielding it; compacting it to its core;
 internalizing it. This core buzzed and hummed with intensity until the spark
 was hit and spontaneity begot revitalizing energy.
@@ -138,14 +139,14 @@ according to its own design. The Animate.
 
 These beings furnaces of the Song, drawing in the music and frenzy which
 reacted there in the crucible. These agents neither consequence nor reaction.
-A force of their own to tune, adjust, and modify. Persistence. The Song has
-always refined. Yet the animate surged and these empowered entities
+A force of their own to tune, adjust, and modify. Persistence. The Song had
+always refined itself. Yet the animate surged and these empowered entities
 synthesized and effected change as yet impossible. The tumult and its turmoil
 thrashing energies. Each piece playing its own way.
 
 More foam accumulating from the breaching of waves upon sands. Each being
 shaping the Song differently and progressing itself in a similar manner. Some
-incorporating other animate, some new these harmonies; all fluctuating and
+incorporating other animate, some these new harmonies; all fluctuating and
 forging further graces of the Song. From these furnaces arose new beings. A
 slight extension of their progress. Creatures building on the success of their
 forebearers. This reproduction of progression within one area vastly different
@@ -175,7 +176,7 @@ Through this fashion, these changes lead to more and varied Animate; the best wa
 Indeed, what we are today is a result of this progress and procedure and malleability.
 Specialized and industrious automatons of modification.
 We, the current peak of the Song's endurance.
-Hones and adept at carrying, embodying, prevailing.
+Honed and adept at carrying, embodying, prevailing.
 That perfection though not faultless.
 The flaws are reduced, recycled, tuned as each generation of Animate gives way to the next.
 Never given chance to sit, stew, spoil.
