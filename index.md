@@ -42,8 +42,7 @@ by a shudder of the evolutionary advance.
 
 A cord snapped. Tension on it from every direction and angle multiplied in one
 area, lessened in another - creating chaotic pressure gradients. This rupture
-quickly emanated… tension differentials sheared other strings… bubbled,
-spread, conflagrated.
+quickly emanated, bubbled, conflagrated.
 
 The cacophony sent shock waves through the All that propagated and unraveled
 the All to the Ruin of the strings. And thus erupted and was born the Void.
