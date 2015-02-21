@@ -139,7 +139,7 @@ action, according to its own design. The Animate.
 
 These beings furnaces of the Song. Drawing in ingredients, which react in the
 crucible. These agents neither consequence nor reaction. A force of their own
-to tune, adjust, and modify. Persistence. The Song had always refined itself,
+to tune, adjust, and modify. The Song had always refined itself,
 yet the Animate surged and these empowered entities synthesized and effected
 change as yet impossible. The tumult and its turmoil thrashing energies and
 melodies. Each piece playing individually, yet accompanying all others.
