@@ -160,7 +160,7 @@ as the Animate let loose its calls.
 
 'Twould be heard.
 
-Just as the planets were engulfed by the Animate and shook with leivity, the
+Just as the planets were engulfed by the Animate and shook with levity, the
 Song was overwhelmed with resonance, harmonics, reiteration; and its substance
 heaved with change. The Song adjusted and took on its next measure.
 
