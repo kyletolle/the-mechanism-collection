@@ -28,6 +28,7 @@ elegance, the All strained. Its fibers woven tightly and its laws interacting
 in hitherto unknown ways.
 
 Another shift to the Song and it reached the crescendo; its purity. But,
+within the All, awry was woven. This perfect Song played upon an imperfect
 instrument. The All quivered and shook and then quaked to a fevered pitch and
 wail at the force.
 
