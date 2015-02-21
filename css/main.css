@@ -32,12 +32,6 @@ h3 {
   padding-bottom: 1em;
 }
 
-h4 {
-  font-size: 2em;
-  padding-bottom: 1em;
-  text-decoration: underline;
-}
-
 a         { color: #2a7ae2; text-decoration: none; }
 a:hover   { color: #000; text-decoration: underline; }
 a:visited { color: #205caa; }
@@ -262,6 +256,6 @@ hr {
   color: #ccc;
   height: 4px;
   padding: 0;
-  margin: 15px 0;
+  margin: 100px 0 200px 0;
 }
 
