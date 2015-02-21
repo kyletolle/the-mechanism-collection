@@ -141,8 +141,8 @@ These beings furnaces of the Song. Drawing in ingredients, which react in the
 crucible. These agents neither consequence nor reaction. A force of their own
 to tune, adjust, and modify. Persistence. The Song had always refined itself,
 yet the Animate surged and these empowered entities synthesized and effected
-change as yet impossible. The tumult and its turmoil thrashing energies. Each
-piece playing individually, yet accompanying all others.
+change as yet impossible. The tumult and its turmoil thrashing energies and
+melodies. Each piece playing individually, yet accompanying all others.
 
 More foam accumulated as waves breached upon sands. And more sparked and
 lived. Each being shaped the Song and progressed in its own manner. Some
@@ -171,7 +171,7 @@ became co-dependent. Persistence and progress plied across generations by the
 Animate's amendments. A guarantee of neoteric variation set into the bones of
 the Cosmos through the swells of the Song.
 
-The Animate burying the Inanimate beneath its refinements - children. The
+The Animate burying the Inanimate beneath its power, refinements, children. The
 specialized and industrious machinery of modification. Families of fusion
 founding colonies. Intertwined and socialized and breathing at the behest of
 those Bits loosed by the All.
