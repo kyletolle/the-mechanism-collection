@@ -61,14 +61,12 @@ So the weave and threads further unwound, devolved, disintegrated to
 constituent components. These Elemental Bits flung far and wide as the
 Cataclysm consumed and spent itself.
 
-As the Bits - infinitely tiny and innumerable - scattered, the Song faded
-from perception.
-
-With the All broken, and the Song quiet, a great period of silence followed
-and accompanied the Void, during which little happened.
+As the Bits - infinitely tiny and innumerable - scattered, the Song faded from
+perception. With the All broken, and the Song quiet, a great period of silence
+followed and accompanied the Void.
 
 The Elemental Bits shot through the Void and traveled long and unimpeded. The
-Song remained within them; resonating, pulsating, imparting energy. They flew
+Song remained within them; resonated, pulsated, agitated. They flew
 about and collided, as chance allowed, and one bit grew to two as they struck
 and stuck.
 
@@ -77,7 +75,7 @@ initiated socialization. A frenzy. Energy increased exponentially; so intense
 it reached the critical point. Thus, the conglomerate erupted into a furnace -
 collapsed, bound, and inseparable.
 
-As these flashpoints formed across the void, stars were birthed and the Song
+As these flashpoints formed across the Void, stars were birthed and the Song
 became a hum once more. The light sources drew crowds of those masses not
 large enough to ignite on their own. Luminescence poured out to those
 fledgling spheres which drew near and orbited; the planets.
