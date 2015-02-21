@@ -13,11 +13,10 @@ foundation; the entirety.
 
 In this All, nothing was diminished.
 
-A small flutter went at first unnoticed, but the vibrations continued and
-echoed and fed back on one another. The reverberations pulsing through the
-All; quickening and strengthening and intensifying through this amplification.
-The flutter absorbed itself, compounded, harmonized, and became more than a
-tremble.
+A small flutter was at first unnoticed, but the vibrations continued and
+echoed and fed back on one another. The reverberations pulsed through the
+All; quickened and strengthened and intensified. The flutter absorbed
+itself, compounded, harmonized, and became more than a tremble.
 
 And so, upon the strings of the All, as if a great woven instrument, began the
 first piece of the Song.
@@ -29,7 +28,6 @@ elegance, the All strained. Its fibers woven tightly and its laws interacting
 in hitherto unknown ways.
 
 Another shift to the Song and it reached the crescendo; its purity. But,
-within the All, awry was miswoven. This perfect Song played upon an imperfect
 instrument. The All quivered and shook and then quaked to a fevered pitch and
 wail at the force.
 
@@ -41,10 +39,10 @@ Heaving and failure birthed a rift - the slightest of tears - which severed
 the All and gaped in flaw. A regression of the whole inflicted
 by a shudder of the evolutionary advance.
 
-A cord snapped. Tension on it from every direction and angle multiplying in
-one area, lessening in another - creating chaotic pressure gradients. This
-rupture quickly emanated… tension differentials shearing other strings…
-bubbling, spreading, conflagrating.
+A cord snapped. Tension on it from every direction and angle multiplied in one
+area, lessened in another - creating chaotic pressure gradients. This rupture
+quickly emanated… tension differentials sheared other strings… bubbled,
+spread, conflagrated.
 
 The cacophony sent shock waves through the All that propagated and unraveled
 the All to the Ruin of the strings. And thus erupted and was born the Void.
