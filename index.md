@@ -180,7 +180,7 @@ Indeed, we today are fertile manifestations of this procedure and
 malleability. Honed and adept at carrying, embodying, prevailing. We, the
 current peak of the Song's endurance, though not faultless. Soon to be
 surpassed and our flaws reduced. Never given chance to sit, stew, spoil.
-Rising to higher order.
+Rising to higher order. A perfect medium for a perfect Song.
 
 That pristine music made with the remains of the Cataclysm turned
 instrumental. The universe trembling to its very being with the message it
