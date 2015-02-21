@@ -137,13 +137,12 @@ The Song's most undeniable trait imparted upon the foam. Persistence. Forged
 through the Song and now aware of it. More than foam - beings. Progress now
 action, according to its own design. The Animate.
 
-These beings furnaces of the Song, drawing in the music and frenzy which
-reacted there in the crucible. These agents neither consequence nor reaction.
-A force of their own to tune, adjust, and modify. Persistence. The Song had
-always refined itself, yet the Animate surged and these empowered entities
-synthesized and effected change as yet impossible. The tumult and its turmoil
-thrashing energies. Each piece playing individually, yet accompanying all
-others.
+These beings furnaces of the Song. Drawing in ingredients, which react in the
+crucible. These agents neither consequence nor reaction. A force of their own
+to tune, adjust, and modify. Persistence. The Song had always refined itself,
+yet the Animate surged and these empowered entities synthesized and effected
+change as yet impossible. The tumult and its turmoil thrashing energies. Each
+piece playing individually, yet accompanying all others.
 
 More foam accumulated as waves breached upon sands. And more sparked and
 lived. Each being shaped the Song and progressed in its own manner. Some
