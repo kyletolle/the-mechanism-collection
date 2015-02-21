@@ -183,8 +183,8 @@ surpassed and our flaws reduced. Never given chance to sit, stew, spoil.
 Rising to higher order.
 
 That pristine music made with the remains of the Cataclysm turned
-instrumental. The known universe trembling to its very being with the message
-it carries and endures; enacts and surely _is_.
+instrumental. The universe trembling to its very being with the message it
+carries and endures; enacts and surely _is_.
 
 ---
 
