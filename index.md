@@ -13,11 +13,10 @@ foundation; the entirety.
 
 In this All, nothing was diminished.
 
-A small flutter went at first unnoticed, but the vibrations continued and
-echoed and fed back on one another. The reverberations pulsing through the
-All; quickening and strengthening and intensifying through this amplification.
-The flutter absorbed itself, compounded, harmonized, and became more than a
-tremble.
+A small flutter was at first unnoticed, but the vibrations continued and
+echoed and fed back on one another. The reverberations pulsed through the
+All; quickened and strengthened and intensified. The flutter absorbed
+itself, compounded, harmonized, and became more than a tremble.
 
 And so, upon the strings of the All, as if a great woven instrument, began the
 first piece of the Song.
@@ -29,7 +28,7 @@ elegance, the All strained. Its fibers woven tightly and its laws interacting
 in hitherto unknown ways.
 
 Another shift to the Song and it reached the crescendo; its purity. But,
-within the All, awry was miswoven. This perfect Song played upon an imperfect
+within the All, awry was woven. This perfect Song played upon an imperfect
 instrument. The All quivered and shook and then quaked to a fevered pitch and
 wail at the force.
 
@@ -41,10 +40,9 @@ Heaving and failure birthed a rift - the slightest of tears - which severed
 the All and gaped in flaw. A regression of the whole inflicted
 by a shudder of the evolutionary advance.
 
-A cord snapped. Tension on it from every direction and angle multiplying in
-one area, lessening in another - creating chaotic pressure gradients. This
-rupture quickly emanated… tension differentials shearing other strings…
-bubbling, spreading, conflagrating.
+A cord snapped. Tension on it from every direction and angle multiplied in one
+area, lessened in another - creating chaotic pressure gradients. This rupture
+quickly emanated, bubbled, and conflagrated.
 
 The cacophony sent shock waves through the All that propagated and unraveled
 the All to the Ruin of the strings. And thus erupted and was born the Void.
@@ -55,7 +53,7 @@ the All to the Ruin of the strings. And thus erupted and was born the Void.
 
 ### Arise and Organization of Elemental Bits
 
-The Void rent the All asunder and its flaws resolved to islands of All-fabric
+The Void rent the All asunder and its flaws resolved to islands of fabric
 set adrift. These pieces struggled to stabilize, but they sought perfection on
 a null structure.
 
@@ -63,32 +61,28 @@ So the weave and threads further unwound, devolved, disintegrated to
 constituent components. These Elemental Bits flung far and wide as the
 Cataclysm consumed and spent itself.
 
-As the Bits - infinitely tiny and innumerable - scattered, the Song faded
-from perception.
+As the Bits - infinitely tiny and innumerable - scattered, the Song faded from
+perception. With the All broken, and the Song quiet, a great period of silence
+followed and accompanied the Void.
 
-With the All broken, and the Song quiet, a great period of silence followed
-and accompanied the Void, during which little happened.
+The Elemental Bits shot through the Void and traveled long and unimpeded. The
+Song remained within them; resonated, pulsated, agitated. They flew
+about and collided, as chance allowed, and one bit grew to two as they struck
+and stuck.
 
-The Elemental Bits shot through the Void and traveled long and unimpeded.
-However slightly, the Song resonated and pulsated and focused within them;
-imparting the Bits Energy and increasing their momentum. They flew about and
-collided, as chance allowed, and one bit grew to two as they struck and stuck.
+Time bore groups in which the resonating Song grew slightly, built heat, and
+initiated socialization. A frenzy. Energy increased exponentially; so intense
+it reached the critical point. Thus, the conglomerate erupted into a furnace -
+collapsed, bound, and inseparable.
 
-Over an incalculable expanse of time, there arose a multitudinous set of Bits.
-The Song working in these groups to bind, build heat, and inspire
-socialization. The collections grew larger, more energetic, and more numerous.
-
-A frenzy. Heat buildup so intense it reached a critical point. A conglomerate
-erupted into a furnace - collapsed, bound, and inseparable.
-
-The stars brought the Song back to a noticeable hum. Throughout the entire
-Void were these flashpoints reached. The light sources drew crowds of those
-masses not large enough to ignite on their own. Luminescence poured out to
-those fledgling spheres which drew near and orbited; the planets.
+As these flashpoints formed across the Void, stars were birthed and the Song
+became a hum once more. The light sources drew crowds of those masses not
+large enough to ignite on their own. Luminescence poured out to those
+fledgling spheres which drew near and orbited; the planets.
 
 The pitch of the Song shifted and the satellites reacted. The Song's measures
-expanded and contracted the planets; forming stretches, wrinkles, and rifts on
-the surfaces. Giving each a unique aspect.
+expanded and contracted the planets; formed stretches, wrinkles, and rifts on
+the surfaces that gave each a unique aspect.
 
 The Song pervaded from shell to core and the clumps did still grow
 warm. At their boundary, where the planets and Void met, the surface Bits
@@ -96,11 +90,11 @@ formed a great steam. And so the planets gained their atmospheres.
 
 Across all these celestial bodies did the Song resonate and grow louder yet;
 driving them to seek out one another and form a symphony of individual
-instruments. And the stars and planets formed systems, galaxies, clusters.
-Pockets of Song-sharers amid the Void. As a whole - the Inanimate.
+instruments. The stars and planets formed systems, galaxies, clusters - the
+Inanimate.
 
-Now the Cosmos had been made through the death of the All, production of the
-Void, and the emotion of the Song imparted to the Elemental Bits.
+The Song endured and imparted its emotion upon the Elemental Bits, which
+coalesced stability amid the Void. And thus the Cataclysm wrought the Cosmos.
 
 ---
 
@@ -115,77 +109,71 @@ measures of the Song and captured the energy of their stars. These forces
 combined, compounded, compressed and the Inanimate pulsed with the progression
 of the Song.
 
-This refinement lead the planets to tremor. Starting in their oceans ripples
-which blended, intermingled, intensified. Building to waves that overlapped,
-peaked and troughed, and broke upon the shores. Whitecaps spreading as the
-oceans writhed and churned. Spitting plumes of spray and foam that caught in
-the wind, drifted across the creaking lands, and settled once the breezes
-failed. The sea foam stuck and joined and formed islands that drifted and
-wandered wide. The ripples and foams traveled together as embodiments of the
-Song; soon covering surfaces of entire planets.
+This refinement lead the planets to tremor. Started in their oceans ripples
+which blended, intermingled, intensified. Built to waves that overlapped,
+peaked and troughed, and broke upon the shores. Whitecaps spread as the oceans
+writhed and churned. Plumes of spray spat foam that caught in the wind,
+drifted across the creaking lands, and settled once the breeze failed. The
+sea foam joined and formed islands that drifted and wandered wide. The ripples
+and foams traveled together as embodiments of the Song, and soon covered
+entire planets.
 
 The Song percolated through the atmospheres - with the starlight - and dripped
-into the sea foam. The froth shielding it; compacting it to its core;
-internalizing it. This core buzzed and hummed with intensity until the spark
+into the sea foam. The froth shielded it; compacted it to its core;
+internalized it. This core buzzed and hummed with intensity until the spark
 was hit and spontaneity begot revitalizing energy.
 
-At first, just a single instance of this. Life. Then it flared throughout
-these cauldrons as an uproar. Forming a new chord in the Song that modified
-the undertones of the Cosmos.
+At first, just a single instance of this - Life. Then it flared throughout
+these cauldrons as an uproar. A new chord formed in the Song and modified the
+undertones of the Cosmos.
 
 The Song's most fundamental trait imparted upon the foam. Progress. Forged
-through the Song and now aware of it. More than foam - beings. Progress now
-action, according to its own design. The Animate.
+through the Song and now aware of it. Progress now action, according to its
+own design. More than foam. The Animate.
 
-These beings furnaces of the Song. Drawing in ingredients, which react in the
-crucible. These agents of propagation neither consequence nor reaction. A
-force of their own to tune, adjust, and modify. The Song had always refined
+These beings furnaces of the Song; crucibles of its change. These agents of
+propagation neither consequence nor reaction. The Song had always refined
 itself, yet the Animate surged and these empowered entities synthesized and
-effected change as yet impossible. The tumult and its turmoil thrashing
-energies and melodies. Each piece playing individually, yet accompanying all
-others.
+effected variation as yet impossible. The tumult and its turmoil thrashed
+energies and melodies. Each piece played individually, yet accompanied others.
 
 More foam accumulated as waves breached upon sands. And more sparked and
-lived. Each being shaped the Song and progressed in its own manner. Some
-incorporated other Animate, some these new harmonies; all fluctuated and
-forged further graces of the Song.
+lived. Some incorporated other Animate, and some these new harmonies, but all
+fluctuated and forged further graces of the Song.
 
-And the Animate spawned new beings; slight extensions of their progress.
+And the Animate spawned new entities; slight extensions of their progress.
 Creatures built on the success of their forebears. The reproduction of
 progression in one area vastly different from that elsewhere.
 
 Soon the planets were encased in the Animate, deluged in starlight, and the
 Song morphed as its instruments strummed and beat in novel fashion. Never
-settling, and now quickening, the Song rang through the atmospheres and oceans
+settled, and soon quickened, the Song rang through the atmospheres and oceans
 as the Animate let loose its calls.
 
 'Twould be heard.
 
-Just as the planets were engulfed by the Animate and shook with levity, the
-Song was overwhelmed with resonance, harmonics, reiteration; and its substance
-heaved with change. The Song adjusted and took on its next measure.
+Just as the planets were engulfed by the Animate and shook with levity;
+resonance, harmonics, and reiteration overwhelmed the Song. Its substance
+heaved with transformation, and took on its next measure.
 
-Eons and ages wheeled, elapsed, were. The emissaries emanating and throwing
-forth their Song-hails. Splintering and fracturing yielded branches of the
-unique, but patterns emerged. And though it brought forth this Animate, the
-Song became co-dependent. Persistence and progress plied across generations by
-the Animate's amendments. A guarantee of neoteric variation set into the bones
-of the Cosmos through the swells of the Song.
+Eons and ages wheeled, elapsed, were. The emissaries threw forth their hails.
+Persistence and progress plied across generations by the Animate's amendments.
+Splinters and fractures yielded branches of the unique. A guarantee of endless
+variation set into the bones of the Cosmos through the seething of the Song.
 
-The Animate burying the Inanimate beneath its power, refinements, children. The
-specialized and industrious machinery of modification. Families of fusion
-founding colonies. Intertwined and socialized and breathing at the behest of
-those Bits loosed by the All.
+The Animate buried planets beneath its refinements and progeny. The
+specialized and industrious machinery of modification. Intertwined and
+socialized and breathing at the behest of those Bits loosed by the All.
 
-Indeed, we today are fertile manifestations of this procedure and
-malleability. Honed and adept at carrying, embodying, prevailing. We, the
-current peak of the Song's endurance, though not faultless. Soon to be
-surpassed and our flaws reduced. Never given chance to sit, stew, spoil.
-Rising to higher order. A perfect medium for a perfect Song.
+Indeed, we today are fertile, familial manifestations of this malleability.
+Honed and adept to carry, embody, prevail. We, the current peak of
+the Song's endurance, though not faultless. Soon to be surpassed and our flaws
+reduced. Never given chance to sit, stew, spoil. Rising to higher order. A
+perfect medium for a perfect Song.
 
 That pristine music made with the remains of the Cataclysm turned
-instrumental. The universe trembling to its very being with the message it
-carries and endures; enacts and surely _is_.
+instrumental. The universe trembling with the message it carries and persists;
+enacts and surely _is_.
 
 ---
 
