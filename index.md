@@ -164,12 +164,12 @@ Just as the planets were engulfed by the Animate and shook with levity, the
 Song was overwhelmed with resonance, harmonics, reiteration; and its substance
 heaved with change. The Song adjusted and took on its next measure.
 
-Eons and ages wheeled, elapsed, were. The agents emanating and throwing forth
-their Song-hails. Splintering and fracturing yielded branches of the unique,
-but patterns emerged. And though it brought forth this Animate, the Song
-became co-dependent. Persistence and progress plied across generations by the
-Animate's amendments. A guarantee of neoteric variation set into the bones of
-the Cosmos through the swells of the Song.
+Eons and ages wheeled, elapsed, were. The emissaries emanating and throwing
+forth their Song-hails. Splintering and fracturing yielded branches of the
+unique, but patterns emerged. And though it brought forth this Animate, the
+Song became co-dependent. Persistence and progress plied across generations by
+the Animate's amendments. A guarantee of neoteric variation set into the bones
+of the Cosmos through the swells of the Song.
 
 The Animate burying the Inanimate beneath its power, refinements, children. The
 specialized and industrious machinery of modification. Families of fusion
