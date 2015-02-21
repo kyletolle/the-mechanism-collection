@@ -68,26 +68,24 @@ from perception.
 With the All broken, and the Song quiet, a great period of silence followed
 and accompanied the Void, during which little happened.
 
-The Elemental Bits shot through the Void and traveled long and unimpeded.
-However slightly, the Song resonated and pulsated and focused within them;
-imparting the Bits Energy and increasing their momentum. They flew about and
-collided, as chance allowed, and one bit grew to two as they struck and stuck.
+The Elemental Bits shot through the Void and traveled long and unimpeded. The
+Song remained within them; resonating, pulsating, imparting energy. They flew
+about and collided, as chance allowed, and one bit grew to two as they struck
+and stuck.
 
-Over an incalculable expanse of time, there arose a multitudinous set of Bits.
-The Song working in these groups to bind, build heat, and inspire
-socialization. The collections grew larger, more energetic, and more numerous.
+Time bore groups in which the resonating Song grew slightly, built heat, and
+initiated socialization. A frenzy. Energy increased exponentially; so intense
+it reached the critical point. Thus, the conglomerate erupted into a furnace -
+collapsed, bound, and inseparable.
 
-A frenzy. Heat buildup so intense it reached a critical point. A conglomerate
-erupted into a furnace - collapsed, bound, and inseparable.
-
-The stars brought the Song back to a noticeable hum. Throughout the entire
-Void were these flashpoints reached. The light sources drew crowds of those
-masses not large enough to ignite on their own. Luminescence poured out to
-those fledgling spheres which drew near and orbited; the planets.
+As these flashpoints formed across the void, stars were birthed and the Song
+became a hum once more. The light sources drew crowds of those masses not
+large enough to ignite on their own. Luminescence poured out to those
+fledgling spheres which drew near and orbited; the planets.
 
 The pitch of the Song shifted and the satellites reacted. The Song's measures
-expanded and contracted the planets; forming stretches, wrinkles, and rifts on
-the surfaces. Giving each a unique aspect.
+expanded and contracted the planets; formed stretches, wrinkles, and rifts on
+the surfaces that gave each a unique aspect.
 
 The Song pervaded from shell to core and the clumps did still grow
 warm. At their boundary, where the planets and Void met, the surface Bits
@@ -95,11 +93,11 @@ formed a great steam. And so the planets gained their atmospheres.
 
 Across all these celestial bodies did the Song resonate and grow louder yet;
 driving them to seek out one another and form a symphony of individual
-instruments. And the stars and planets formed systems, galaxies, clusters.
-Pockets of Song-sharers amid the Void. As a whole - the Inanimate.
+instruments. The stars and planets formed systems, galaxies, clusters - the
+Inanimate.
 
-Now the Cosmos had been made through the death of the All, production of the
-Void, and the emotion of the Song imparted to the Elemental Bits.
+The Song endured and imparted its emotion upon the Elemental Bits, which
+coalesced stability amid the Void. And thus the Cataclysm wrought the Cosmos.
 
 ---
 
