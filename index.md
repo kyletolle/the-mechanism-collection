@@ -54,7 +54,7 @@ the All to the Ruin of the strings. And thus erupted and was born the Void.
 
 ### Arise and Organization of Elemental Bits
 
-The Void rent the All asunder and its flaws resolved to islands of All-fabric
+The Void rent the All asunder and its flaws resolved to islands of fabric
 set adrift. These pieces struggled to stabilize, but they sought perfection on
 a null structure.
 
@@ -165,9 +165,9 @@ Song was overwhelmed with resonance, harmonics, reiteration; and its substance
 heaved with change. The Song adjusted and took on its next measure.
 
 Eons and ages wheeled, elapsed, were. The emissaries emanating and throwing
-forth their Song-hails. Splintering and fracturing yielded branches of the
+forth their hails. Splintering and fracturing yielded branches of the
 unique, but patterns emerged. And though it brought forth this Animate, the
-Song became co-dependent. Persistence and progress plied across generations by
+Song became codependent. Persistence and progress plied across generations by
 the Animate's amendments. A guarantee of neoteric variation set into the bones
 of the Cosmos through the swells of the Song.
 
