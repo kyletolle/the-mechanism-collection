@@ -96,8 +96,8 @@ formed a great steam. And so the planets gained their atmospheres.
 
 Across all these celestial bodies did the Song resonate and grow louder yet;
 driving them to seek out one another and form a symphony of individual
-instruments. And the stars and planets formed systems, galaxies, clusters. As
-a whole - the Inanimate.
+instruments. And the stars and planets formed systems, galaxies, clusters.
+Pockets of Song-sharers amid the Void. As a whole - the Inanimate.
 
 Now the Cosmos had been made through the death of the All, production of the
 Void, and the emotion of the Song imparted to the Elemental Bits.
