@@ -133,7 +133,7 @@ At first, just a single instance of this. Life. Then it flared throughout
 these cauldrons as an uproar. Forming a new chord in the Song that modified
 the undertones of the Cosmos.
 
-The Song's most undeniable trait imparted upon the foam. Persistence. Forged
+The Song's most fundamental trait imparted upon the foam. Propagation. Forged
 through the Song and now aware of it. More than foam - beings. Progress now
 action, according to its own design. The Animate.
 
