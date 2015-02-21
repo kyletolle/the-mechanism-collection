@@ -133,16 +133,17 @@ At first, just a single instance of this. Life. Then it flared throughout
 these cauldrons as an uproar. Forming a new chord in the Song that modified
 the undertones of the Cosmos.
 
-The Song's most fundamental trait imparted upon the foam. Propagation. Forged
+The Song's most fundamental trait imparted upon the foam. Progress. Forged
 through the Song and now aware of it. More than foam - beings. Progress now
 action, according to its own design. The Animate.
 
 These beings furnaces of the Song. Drawing in ingredients, which react in the
-crucible. These agents neither consequence nor reaction. A force of their own
-to tune, adjust, and modify. The Song had always refined itself,
-yet the Animate surged and these empowered entities synthesized and effected
-change as yet impossible. The tumult and its turmoil thrashing energies and
-melodies. Each piece playing individually, yet accompanying all others.
+crucible. These agents of propagation neither consequence nor reaction. A
+force of their own to tune, adjust, and modify. The Song had always refined
+itself, yet the Animate surged and these empowered entities synthesized and
+effected change as yet impossible. The tumult and its turmoil thrashing
+energies and melodies. Each piece playing individually, yet accompanying all
+others.
 
 More foam accumulated as waves breached upon sands. And more sparked and
 lived. Each being shaped the Song and progressed in its own manner. Some
