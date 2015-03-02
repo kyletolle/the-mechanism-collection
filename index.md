@@ -181,4 +181,147 @@ enacts and surely _is_.
 
 ### Reclamation
 
-#### The Fourth is coming.
+# 1
+
+This Mechanism... is it an addition to an original three mechanism creation
+myth? If so, this author can take a totally different stance on what life is,
+whether it is good or bad, etc.
+
+Here's one version:
+
+It bean with the worms. Devouring the surface of the world, tunneling and
+delving. Causing an itch that stirred the Inanimate. And once roused, It
+noticed the creeping crawling filth that covered Its surface.
+
+Grass clinging, trees protruding, creatures roaming - tresspassing - all
+about.
+
+---
+
+Does this author need to assert anything like how the Inanimate has these
+anthropocentric qualities?
+
+---
+
+And where It had rested peacefully before, It set to reclaim itself and be rid
+of the pestilance, the virii, fungus, parasites.
+
+Oceans boiled and the waves became tumultuous. The sky darkened and winds
+conspired to form great storms. The land shook with wrath and vehemently
+vomitted motel cor and poisonous fume.
+
+Waters (rivers and lakes) spread and drowned. Mountains raised up and thrust
+bony appendages through the muck and mire.
+
+And so here we are today with the Earth revolting against the Animate.
+
+Taking action, growing more desperate increasingly violent. Not to rest until
+it has purged itself of the smothering Film. Usurpers and encroachers.
+
+---
+
+The world for some reason feels it has a right to be left alone, even though
+it was part of the organization of the Song
+```
+
+So here we find ourselves today... Fighting a battled for a place on which we
+have no claim.
+
+We attempt to thward Its designs by delving, building, marring. Fill the air
+with a thick dense cloud (smog) designed to lure it back to a sonorous
+slumber. Ever waring, never conquering.
+
+---
+
+
+But if the world were so strong, because of how large it is, shouldn't it be
+able to wipe all life out in an instant?
+
+---
+
+But then, life is resolute. It desires to cover and consume and feed itself,
+gorging to as to multiply.
+
+---
+
+The whole point of this Mechanism is to point out that we do not belong. But
+it must then come to some asinine conclusion that contradicts itself.
+
+---
+
+We are a harmful, prideful, foolish thing. A mistake. Not an embodiment of the
+Song. The world has every right to assert its dominance, its independence, and
+wipe us out. We shouldn't fight it at all.
+
+---
+
+Is this currently happening, or perhaps this Mechanism just says that it will
+happen at some time in the future. When it awakes and sees all the evil
+wrought by the Animate. This would be a convenient analogy to either redeption
+or punishment (here called Reclamation) occurring some time in the future. So
+it can always be said to be just around the corner.
+
+---
+
+Beware. Repent. Regret.
+
+# 2
+
+We, in our ignorance, have angered Her. Her wrath and retribution are nigh and
+there will be no corner where her revenge does not strike. The creatures on
+this earth: a pestilence to Her. The grass and trees smother Her surface,
+while her fingers thrust upward. All creeping creatures as mites that scury
+and itch. It has been long since her birth and now she does slumber. But we
+can see evidence of her awareness. We emit smoke and soot; she coughs madly in
+storms of anguish.
+
+---
+
+What about her emitting it an attempt to smother us and deprive us of light?
+
+When the light can't reach the creatures, does life continue? Or does life
+need light AND the song to flourish?
+
+---
+
+We delve deeply; she groans and tosses fitfully. We spread dominion; she
+lashes back with fire and chasms and floods. We, the crawling muck, have only
+limited time before she is fully awakened and her attention is focused on us.
+To be rid of the eaters of the song. Her surface has stretched, bent,
+contorted to stop the spread of the grasses, but the Animate has spread its
+roots afar. The forests strangling her breath. And we see where she has
+managed to flaw free and break through the crust we've set. There is no
+denying the grief we've caused; that which she now smells accutely and will
+make herself rid of. The end shall soon be upon us when she rains sulfer upon
+her pockmarked skin. When she splits open her hide and eats the eaters. The
+ashes will be stirred in the wind as she rolls from her bed and shakes off our
+sloughing carcasses. She will spit the Song from her mouth and quench the fith
+which steal her energy.
+
+Unless we repent, repent, delay, she will soon wash we, the lecherous Animate,
+from her heart, mind, body. Unless we appease, we'll be dead when she begins
+her Reclamation.
+
+# 3
+
+Yea, do we all know of the Song and the Inanimate and, at last, the Animate.
+But the current understanding is flawed and knows nothing of what is happening
+now or will soom come to be. Since the covering of the Inanimate, we have
+lulled the planet into slumber, likea  child under blankets. And our gases
+have choked her lungs and made her eyesight foggy. But not forever will she
+sleep. And she will discover our tresspass and Reclaim what is hers. ALready
+we see indications; the ground trembles, oceans surge, winds topple, fires
+devour. Like the tossing of a fitfull sleeper, she begins to notice our
+presence. And when she fully awakens, there will be nowhere to hide. Her spine
+shall burst forth from the forests, her fingers pry loose from the plains, her
+skin slough off our cities. And then may she become animated in a way that not
+even we can. The destruction has begun and there is no end in sight. We've
+taken up residence on hallowed ground, tarnishes the land, sullied the air,
+corrupted the native presence and hope with our greed, malice, bickering, and
+thoughtlessness. Unless we repent our evil ways and live without impact... go
+unnoticed... we shall be underneath the soil, fire eating our air, while
+mountains topple over into the pits that have opened under us, and we shall be
+buried, dead, and forever resented for our malfeasance. We've interrupted the
+Song. It'll be corrected and go on. Enduring in spite of us. We sit on the
+instrument's strings, dampening the chords. She will strum and she will be
+heard.
