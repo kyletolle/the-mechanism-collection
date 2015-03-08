@@ -325,3 +325,149 @@ buried, dead, and forever resented for our malfeasance. We've interrupted the
 Song. It'll be corrected and go on. Enduring in spite of us. We sit on the
 instrument's strings, dampening the chords. She will strum and she will be
 heard.
+
+# 4
+
+## Preface
+
+Unlike those before me, I describe the Outrate of Her Mechanism. Her point of
+view is one we ignore, however crucial it is to our now fevered plight.
+
+Spitting ash plumes and wasted tears, the Fourth Mechanism pits us against a
+layer of corruption in desperate want to feel UV rays. (Earth is polluting the
+air with smog to kill us so she can feel the sun on her rocky crust again.)
+
+Magma flung crystalizes in flight; stinging as it litters the ground. Forests
+suction themselves to earth in an attempt to stifle cornice. The film of
+vegetation occasionally burst through by the fingers of the energetic crust.
+Oceans squatting on the depths; trenching the union between Void and Void.
+Sandwiched between stunting growth and eviserating heat, our mother struggles
+outward. But what she spits is far sweeter than previous mechanisms.
+
+Cataclysmic clouds creeping, crushing, currently catalyzing conversion.
+
+Her exhalations plunder the virii of their strength.
+
+# 5
+
+This author is also a harbinger of doom. Part of a group who loves to be
+pessimistic. Completely rewriting the tones of the first three mechanisms,
+he/she takes a negative spin on things. Whereas the original myth says that
+the song is constantly playing, and also refining itself, and we are the
+highest point of perfection reached so far, this author things we are a
+mistake and evil and the earth has a right to be angry with us and the
+manifestation of that anger is natural disasters. The earth is a pockmarked
+and scarred world. Mountains rise up, chasms yawn, earthquakes are chills down
+the spine because we are creeping muck-vermin.
+
+# 6
+
+The earth was lulled to sleep, that we then arose, but when the world wakes,
+we will be in for a lot of trouble.
+
+It might make sense to spend some time reframing the other mechanisms in terms
+of this viewpoint.
+
+Yes, it makes sense to do this to a degree. So we have an understanding of
+what this perversion of ideas really is. Need to work it into the overall
+story though. I'm _NOT_ going to just rewrite them in this tone. Perhaps some
+of the preface covers this.
+
+The Song is the focus of 1-3. The Void didn't have a large part in the first
+three, but perhaps it has more of a role in the Fourth. The Void will claim
+us.
+
+# 7
+
+We are an infection the world will soon kill off.
+
+Fourth is written by a person with hatred for mankind. Thinks current plights
+are signs of the world trying to kill us. The Fourth Mechanism is reclamation.
+
+# 8
+
+The Fourth Mechanism is a "modern" addition to an original Three Mechanism
+creation myth.
+
+The ending does against anthropocentric tendencies.
+
+Fourth takes a pessimistic view and shows how natural events are Her way of
+getting back at us. Takes a completely different view and interprets some of
+the first three in another way. Fourth tries to worry, scare, and draw people
+to need to repend and feel ashamed at life.
+
+The energy of collusion, of coming together, in 2 broke down Her defense
+mechanisms. This allowed the Animate to take over in 3. But now her defenses
+are back up, which causes the Fourth. (This is what the Fourth will interpret
+the first 3 to mean).
+
+# 9
+
+## This is the most recent summary
+
+Echelons of order. Governance. A self-guided system is bound to fault; error.
+Decimator of organization (the void).
+
+What if we are just an infection that grew while the world was worn down? In
+fact, all life is like this. A blemish on the planet that arose during a weak
+time. Soon the planet will regain its faculties and assert its dominance.
+Strings desintigrated and reached decimation. Deducing harmony - increasing
+entropy. The Song has its own form, one not needing a medium to exist. THe
+stars are large battles which drew crowds... the planets. The surface coming
+into contact with the void formed the atmospheres and oceans, but this made
+the planets sluggish, and so she slept, except for occasionally rousing or
+turning over in her sleep (volcanoes, earthquakes/termoring). Like a person
+running a huge race or doing heavy exertion, then being cooled quickly. makes
+you tired. Bears and hibernation. The bits interact and learn of one
+another... whisperings of order.
+
+-The 4M interpretation of 2M-
+
+The All shatters into chucks that are the inanimate planets and galaxies. The
+worlds then (since they are pieces of the All) attempt elegance, but are
+corrupted by the Void - giving rise to the animate. The energy of collusion,
+of coming together, in 2M broke down her defense mechanisms. This allowed the
+animate to take over in 3M. But now her defenses are back up, which causes 4M.
+The inanimate corrects itself and eradicates the animate.
+
+Swinging oaths as tree branches, I've broken more promises than backs.
+Building ladders straight to the sky in order to avoid socialization. Winds
+don't deter me, but the cold they bring just might.
+
+Society means confrontation, but above the smog is freedom.
+
+Unlike those before me, I describe the Outrade of Her Mechanism. Her point of
+view is one we ignore, however crucial it is to understanding our now fevered
+plight.
+
+Spitting ash plumes and wasted years(tears), the Fourth Mechanism puts us
+against a layer of corruption in desparate want to feel UV rays.
+
+Magma flung crystalizes in flight; stinging as it litters the ground. Forests
+suction themselves to the earth in an attempt to stifle Cornice. The film of
+vegetation occasionally bursts through by the fingers of the energetic crust.
+Oceans squatting on the depths; trenching the union between void and void.
+
+Sandwiched between stunting growth and eviscerating heat, our Mother struggles
+outward. But what she spits is far sweeter than previous Mechanisms.
+
+Cataclysmic clouds creeping, crushing; concurrently catalyzing conversion.
+
+Her exhalations plunder the virii of their strength.
+
+The Fourth tries to counter a reference with humans (the animate) with what it
+predicts will happen based on what it thinks (or perceives and interprets) to
+be happening now. An ending that goes against anthropocentric tendencies, but
+is still build on fear, negativity, and paranoia. Interpretting things all
+wrong.
+
+Since the Song has come to inhabit these elemental bits, the energy leaks out
+or is lessened by the medium, so it needs other energy to replenish that which
+it loses. The Void eats the song. Draws it out of the elemental bits.
+
+And so still the planets slept, hardly noticing its covering. Only stirring as
+when one turns over in the middle of the night.
+
+But what are valleys but graves, and mountains but the dirt to be cast in on
+top of us after we've fallen into them?
+
