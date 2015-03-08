@@ -181,232 +181,75 @@ enacts and surely _is_.
 
 ### Reclamation
 
-# 1
+# These are notes
 
-This Mechanism... is it an addition to an original three mechanism creation
-myth? If so, this author can take a totally different stance on what life is,
-whether it is good or bad, etc.
+The Fourth Mechanism is a "modern" addition to an original Three Mechanism
+creation myth.
+Written by a person with hatred for mankind.
+This author is also a harbinger of doom.
+Part of a group who loves to be pessimistic.
 
-Here's one version:
+Completely rewriting the tones of the first three mechanisms, he/she takes a
+negative spin on things.
 
-It bean with the worms. Devouring the surface of the world, tunneling and
-delving. Causing an itch that stirred the Inanimate. And once roused, It
-noticed the creeping crawling filth that covered Its surface.
+Fourth takes a pessimistic view and shows how natural events are Her way of
+getting back at us.
 
-Grass clinging, trees protruding, creatures roaming - tresspassing - all
-about.
+Thinks current plights are signs of the world trying to kill us.
+The Fourth Mechanism is reclamation.
 
----
+The Song is the focus of 1-3.
+The Void didn't have a large part in the first three, but perhaps it has more
+of a role in the Fourth.
+The Void will claim us.
 
-Does this author need to assert anything like how the Inanimate has these
-anthropocentric qualities?
+Takes a completely different view and interprets some of the first three in
+another way.
 
----
+Whereas the original myth says that the song is constantly playing, and also
+refining itself, and we are the highest point of perfection reached so far,
+this author things we are a mistake and evil and the earth has a right to be
+angry with us and the manifestation of that anger is natural disasters.
 
-And where It had rested peacefully before, It set to reclaim itself and be rid
-of the pestilance, the virii, fungus, parasites.
-
-Oceans boiled and the waves became tumultuous. The sky darkened and winds
-conspired to form great storms. The land shook with wrath and vehemently
-vomitted motel cor and poisonous fume.
-
-Waters (rivers and lakes) spread and drowned. Mountains raised up and thrust
-bony appendages through the muck and mire.
-
-And so here we are today with the Earth revolting against the Animate.
-
-Taking action, growing more desperate increasingly violent. Not to rest until
-it has purged itself of the smothering Film. Usurpers and encroachers.
-
----
+It might make sense to spend some time reframing the other mechanisms in terms
+of this viewpoint.
+Yes, it makes sense to do this to a degree.
+So we have an understanding of what this perversion of ideas really is.
+Need to work it into the overall story though.
+I'm _NOT_ going to just rewrite them in this tone.
+Perhaps some of the preface covers this.
 
 The world for some reason feels it has a right to be left alone, even though
 it was part of the organization of the Song
-```
 
-So here we find ourselves today... Fighting a battled for a place on which we
-have no claim.
-
-We attempt to thward Its designs by delving, building, marring. Fill the air
-with a thick dense cloud (smog) designed to lure it back to a sonorous
-slumber. Ever waring, never conquering.
-
----
-
+Does this author need to assert anything like how the Inanimate has anthropocentric qualities like being angry and sleeping and rousing, etc?
 
 But if the world were so strong, because of how large it is, shouldn't it be
 able to wipe all life out in an instant?
+What about her emitting the smog an attempt to smother us and deprive us of light?
 
----
-
-But then, life is resolute. It desires to cover and consume and feed itself,
-gorging to as to multiply.
-
----
+When the light can't reach the creatures, does life continue?
+Or does life need light AND the song to flourish?
 
 The whole point of this Mechanism is to point out that we do not belong. But
 it must then come to some asinine conclusion that contradicts itself.
 
----
-
-We are a harmful, prideful, foolish thing. A mistake. Not an embodiment of the
-Song. The world has every right to assert its dominance, its independence, and
-wipe us out. We shouldn't fight it at all.
-
----
-
 Is this currently happening, or perhaps this Mechanism just says that it will
-happen at some time in the future. When it awakes and sees all the evil
-wrought by the Animate. This would be a convenient analogy to either redeption
-or punishment (here called Reclamation) occurring some time in the future. So
-it can always be said to be just around the corner.
+happen at some time in the future.
+When it awakes and sees all the evil wrought by the Animate.
+This would be a convenient analogy to either redeption or punishment (here
+called Reclamation) occurring some time in the future.
+So it can always be said to be just around the corner.
 
----
+The ending goes against anthropocentric tendencies.
 
-Beware. Repent. Regret.
-
-# 2
-
-We, in our ignorance, have angered Her. Her wrath and retribution are nigh and
-there will be no corner where her revenge does not strike. The creatures on
-this earth: a pestilence to Her. The grass and trees smother Her surface,
-while her fingers thrust upward. All creeping creatures as mites that scury
-and itch. It has been long since her birth and now she does slumber. But we
-can see evidence of her awareness. We emit smoke and soot; she coughs madly in
-storms of anguish.
-
----
-
-What about her emitting it an attempt to smother us and deprive us of light?
-
-When the light can't reach the creatures, does life continue? Or does life
-need light AND the song to flourish?
-
----
-
-We delve deeply; she groans and tosses fitfully. We spread dominion; she
-lashes back with fire and chasms and floods. We, the crawling muck, have only
-limited time before she is fully awakened and her attention is focused on us.
-To be rid of the eaters of the song. Her surface has stretched, bent,
-contorted to stop the spread of the grasses, but the Animate has spread its
-roots afar. The forests strangling her breath. And we see where she has
-managed to flaw free and break through the crust we've set. There is no
-denying the grief we've caused; that which she now smells accutely and will
-make herself rid of. The end shall soon be upon us when she rains sulfer upon
-her pockmarked skin. When she splits open her hide and eats the eaters. The
-ashes will be stirred in the wind as she rolls from her bed and shakes off our
-sloughing carcasses. She will spit the Song from her mouth and quench the fith
-which steal her energy.
-
-Unless we repent, repent, delay, she will soon wash we, the lecherous Animate,
-from her heart, mind, body. Unless we appease, we'll be dead when she begins
-her Reclamation.
-
-# 3
-
-Yea, do we all know of the Song and the Inanimate and, at last, the Animate.
-But the current understanding is flawed and knows nothing of what is happening
-now or will soom come to be. Since the covering of the Inanimate, we have
-lulled the planet into slumber, likea  child under blankets. And our gases
-have choked her lungs and made her eyesight foggy. But not forever will she
-sleep. And she will discover our tresspass and Reclaim what is hers. ALready
-we see indications; the ground trembles, oceans surge, winds topple, fires
-devour. Like the tossing of a fitfull sleeper, she begins to notice our
-presence. And when she fully awakens, there will be nowhere to hide. Her spine
-shall burst forth from the forests, her fingers pry loose from the plains, her
-skin slough off our cities. And then may she become animated in a way that not
-even we can. The destruction has begun and there is no end in sight. We've
-taken up residence on hallowed ground, tarnishes the land, sullied the air,
-corrupted the native presence and hope with our greed, malice, bickering, and
-thoughtlessness. Unless we repent our evil ways and live without impact... go
-unnoticed... we shall be underneath the soil, fire eating our air, while
-mountains topple over into the pits that have opened under us, and we shall be
-buried, dead, and forever resented for our malfeasance. We've interrupted the
-Song. It'll be corrected and go on. Enduring in spite of us. We sit on the
-instrument's strings, dampening the chords. She will strum and she will be
-heard.
-
-# 4
-
-## Preface
-
-Unlike those before me, I describe the Outrate of Her Mechanism. Her point of
-view is one we ignore, however crucial it is to our now fevered plight.
-
-Spitting ash plumes and wasted tears, the Fourth Mechanism pits us against a
-layer of corruption in desperate want to feel UV rays. (Earth is polluting the
-air with smog to kill us so she can feel the sun on her rocky crust again.)
-
-Magma flung crystalizes in flight; stinging as it litters the ground. Forests
-suction themselves to earth in an attempt to stifle cornice. The film of
-vegetation occasionally burst through by the fingers of the energetic crust.
-Oceans squatting on the depths; trenching the union between Void and Void.
-Sandwiched between stunting growth and eviserating heat, our mother struggles
-outward. But what she spits is far sweeter than previous mechanisms.
-
-Cataclysmic clouds creeping, crushing, currently catalyzing conversion.
-
-Her exhalations plunder the virii of their strength.
-
-# 5
-
-This author is also a harbinger of doom. Part of a group who loves to be
-pessimistic. Completely rewriting the tones of the first three mechanisms,
-he/she takes a negative spin on things. Whereas the original myth says that
-the song is constantly playing, and also refining itself, and we are the
-highest point of perfection reached so far, this author things we are a
-mistake and evil and the earth has a right to be angry with us and the
-manifestation of that anger is natural disasters. The earth is a pockmarked
-and scarred world. Mountains rise up, chasms yawn, earthquakes are chills down
-the spine because we are creeping muck-vermin.
-
-# 6
-
-The earth was lulled to sleep, that we then arose, but when the world wakes,
-we will be in for a lot of trouble.
-
-It might make sense to spend some time reframing the other mechanisms in terms
-of this viewpoint.
-
-Yes, it makes sense to do this to a degree. So we have an understanding of
-what this perversion of ideas really is. Need to work it into the overall
-story though. I'm _NOT_ going to just rewrite them in this tone. Perhaps some
-of the preface covers this.
-
-The Song is the focus of 1-3. The Void didn't have a large part in the first
-three, but perhaps it has more of a role in the Fourth. The Void will claim
-us.
-
-# 7
-
-We are an infection the world will soon kill off.
-
-Fourth is written by a person with hatred for mankind. Thinks current plights
-are signs of the world trying to kill us. The Fourth Mechanism is reclamation.
-
-# 8
-
-The Fourth Mechanism is a "modern" addition to an original Three Mechanism
-creation myth.
-
-The ending does against anthropocentric tendencies.
-
-Fourth takes a pessimistic view and shows how natural events are Her way of
-getting back at us. Takes a completely different view and interprets some of
-the first three in another way. Fourth tries to worry, scare, and draw people
-to need to repend and feel ashamed at life.
-
-The energy of collusion, of coming together, in 2 broke down Her defense
-mechanisms. This allowed the Animate to take over in 3. But now her defenses
-are back up, which causes the Fourth. (This is what the Fourth will interpret
-the first 3 to mean).
+Fourth tries to worry, scare, and draw people to need to repent and feel
+ashamed at life.
 
 # 9
 
 ## This is the most recent summary
 
-Echelons of order. Governance. A self-guided system is bound to fault; error.
-Decimator of organization (the void).
 
 What if we are just an infection that grew while the world was worn down? In
 fact, all life is like this. A blemish on the planet that arose during a weak
@@ -430,9 +273,6 @@ of coming together, in 2M broke down her defense mechanisms. This allowed the
 animate to take over in 3M. But now her defenses are back up, which causes 4M.
 The inanimate corrects itself and eradicates the animate.
 
-Swinging oaths as tree branches, I've broken more promises than backs.
-Building ladders straight to the sky in order to avoid socialization. Winds
-don't deter me, but the cold they bring just might.
 
 Society means confrontation, but above the smog is freedom.
 
@@ -447,9 +287,6 @@ Magma flung crystalizes in flight; stinging as it litters the ground. Forests
 suction themselves to the earth in an attempt to stifle Cornice. The film of
 vegetation occasionally bursts through by the fingers of the energetic crust.
 Oceans squatting on the depths; trenching the union between void and void.
-
-Sandwiched between stunting growth and eviscerating heat, our Mother struggles
-outward. But what she spits is far sweeter than previous Mechanisms.
 
 Cataclysmic clouds creeping, crushing; concurrently catalyzing conversion.
 
@@ -470,4 +307,170 @@ when one turns over in the middle of the night.
 
 But what are valleys but graves, and mountains but the dirt to be cast in on
 top of us after we've fallen into them?
+
+---
+
+# 10
+
+## This is a combination of all the other drafts of the Fourth.
+
+---
+
+# The Fourth Mechanism
+
+## Reclamation
+
+### Preface
+
+Yea, do we all know of the Song and the Inanimate and, at last, the Animate.
+But the current understanding is flawed and knows nothing of what is happening
+now or will soom come to be.
+
+Unlike those before me, I describe the outrage of Her Mechanism.
+
+Sandwiched between stunting growth and eviscerating heat, our Mother struggles
+outward. But what she spits is far sweeter than previous Mechanisms.
+
+Her point of view is one we ignore, however crucial it is to our now-fevered
+plight.
+
+Swinging oaths as tree branches, I've broken more promises than backs.
+Building ladders straight to the sky in order to avoid socialization. Winds
+don't deter me, but the cold they bring just might.
+
+---
+
+Echelons of order. Governance. A self-guided system is bound to fault; error.
+Decimator of organization (the void).
+
+It began with the worms. Devouring the surface of the world, tunneling and
+delving. Causing an itch that stirred the Inanimate. And once roused, It
+noticed the creeping crawling filth that covered Its surface.
+
+Grass clinging, trees protruding, creatures roaming - tresspassing - all
+about.
+
+Spitting ash plumes and wasted tears, the Fourth Mechanism pits us against a
+layer of corruption in desperate want to feel UV rays. (Earth is polluting the
+air with smog to kill us so she can feel the sun on her rocky crust again.)
+
+Magma flung crystalizes in flight; stinging as it litters the ground. Forests
+suction themselves to earth in an attempt to stifle cornice. The film of
+vegetation occasionally burst through by the fingers of the energetic crust.
+Oceans squatting on the depths; trenching the union between Void and Void.
+Sandwiched between stunting growth and eviserating heat, our mother struggles
+outward. But what she spits is far sweeter than previous mechanisms.
+
+Cataclysmic clouds creeping, crushing, currently catalyzing conversion.
+
+Her exhalations plunder the virii of their strength.
+
+The earth is a pockmarked and scarred world. Mountains rise up, chasms yawn,
+earthquakes are chills down the spine because we are creeping muck-vermin.
+We, in our ignorance, have angered Her. Her wrath and retribution are nigh and
+there will be no corner where her revenge does not strike. The creatures on
+this earth: a pestilence to Her. The grass and trees smother Her surface,
+while her fingers thrust upward. All creeping creatures as mites that scurry
+and itch. It has been long since her birth and now she does slumber. But we
+can see evidence of her awareness. We emit smoke and soot; she coughs madly in
+storms of anguish.
+
+The earth was lulled to sleep, that we then arose, but when the world wakes,
+we will be in for a lot of trouble.
+
+We are an infection the world will soon kill off.
+
+The energy of collusion, of coming together, in 2 broke down Her defense
+mechanisms. This allowed the Animate to take over in 3. But now her defenses
+are back up, which causes the Fourth. (This is what the Fourth will interpret
+the first 3 to mean).
+
+
+We delve deeply; she groans and tosses fitfully. We spread dominion; she
+lashes back with fire and chasms and floods. We, the crawling muck, have only
+limited time before she is fully awakened and her attention is focused on us.
+To be rid of the eaters of the song. Her surface has stretched, bent,
+contorted to stop the spread of the grasses, but the Animate has spread its
+roots afar. The forests strangling her breath. And we see where she has
+managed to flaw free and break through the crust we've set. There is no
+denying the grief we've caused; that which she now smells accutely and will
+make herself rid of. The end shall soon be upon us when she rains sulfer upon
+her pockmarked skin. When she splits open her hide and eats the eaters. The
+ashes will be stirred in the wind as she rolls from her bed and shakes off our
+sloughing carcasses. She will spit the Song from her mouth and quench the fith
+which steal her energy.
+
+And where It had rested peacefully before, It set to reclaim itself and be rid
+of the pestilance, the virii, fungus, parasites.
+
+Oceans boiled and the waves became tumultuous. The sky darkened and winds
+conspired to form great storms. The land shook with wrath and vehemently
+vomitted motel cor and poisonous fume.
+
+Waters (rivers and lakes) spread and drowned. Mountains raised up and thrust
+bony appendages through the muck and mire.
+
+And so here we are today with the Earth revolting against the Animate.
+
+Taking action, growing more desperate increasingly violent. Not to rest until
+it has purged itself of the smothering Film. Usurpers and encroachers.
+
+So here we find ourselves today... Fighting a battled for a place on which we
+have no claim.
+
+We attempt to thwart Its designs by delving, building, marring. Fill the air
+with a thick dense cloud (smog) designed to lure it back to a sonorous
+slumber. Ever waring, never conquering.
+
+But then, life is resolute. It desires to cover and consume and feed itself,
+gorging to as to multiply.
+
+We are a harmful, prideful, foolish thing. A mistake. Not an embodiment of the
+Song. The world has every right to assert its dominance, its independence, and
+wipe us out. We shouldn't fight it at all.
+
+Beware. Repent. Regret.
+
+Unless we repent, repent, delay, she will soon wash we, the lecherous Animate,
+from her heart, mind, body. Unless we appease, we'll be dead when she begins
+her Reclamation.
+
+---
+
+Note: This is one of my favorite interpretations. Can we have the voice of all
+the rest of it be like this?
+
+Since the covering of the Inanimate, we have lulled the planet into slumber,
+like a child under blankets.
+
+And our gases have choked her lungs and made her eyesight foggy.
+
+But not forever will she sleep.
+
+And she will discover our tresspass and Reclaim what is hers.
+
+Already we see indications; the ground trembles, oceans surge, winds topple, fires devour.
+
+Like the tossing of a fitful sleeper, she begins to notice our presence.
+And when she fully awakens, there will be nowhere to hide.
+
+Her spine shall burst forth from the forests, her fingers pry loose from the plains, her skin slough off our cities.
+
+And then may she become animated in a way that not even we can.
+
+The destruction has begun and there is no end in sight.
+
+We've taken up residence on hallowed ground, tarnishes the land, sullied the air, corrupted the native presence and hope with our greed, malice, bickering, and thoughtlessness.
+
+Unless we repent our evil ways and live without impact... go unnoticed... we
+shall be underneath the soil, fire eating our air, while mountains topple over
+into the pits that have opened under us, and we shall be buried, dead, and
+forever resented for our malfeasance.
+
+We've interrupted the Song.
+It'll be corrected and go on.
+Enduring in spite of us.
+
+We sit on the instrument's strings, dampening the chords.
+She will strum and she will be heard.
 
