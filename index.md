@@ -334,10 +334,6 @@ outward. But what she spits is far sweeter than previous Mechanisms.
 Her point of view is one we ignore, however crucial it is to our now-fevered
 plight.
 
-Swinging oaths as tree branches, I've broken more promises than backs.
-Building ladders straight to the sky in order to avoid socialization. Winds
-don't deter me, but the cold they bring just might.
-
 ---
 
 Echelons of order. Governance. A self-guided system is bound to fault; error.
