@@ -183,68 +183,71 @@ enacts and surely _is_.
 
 # These are notes
 
-The Fourth Mechanism is a "modern" addition to an original Three Mechanism
+The Fourth Mechanism is a "modern" addition to an original three Mechanism
 creation myth.
-Written by a person with hatred for mankind.
-This author is also a harbinger of doom.
-Part of a group who loves to be pessimistic.
 
-Completely rewriting the tones of the first three mechanisms, he/she takes a
-negative spin on things.
+The original myth says the Song constantly plays and refines itself. We are
+the height of perfection so far. The Song of the focus of One through Three.
 
-Fourth takes a pessimistic view and shows how natural events are Her way of
-getting back at us.
+The author of the Fourth has a hatred for mankind. They are a harbinger of
+doom, and part of a group who honors pessimism. They re-interpret the tones
+of the first three Mechanisms, and put a negative spin on them.
 
-Thinks current plights are signs of the world trying to kill us.
-The Fourth Mechanism is reclamation.
+They think we are a mistake and evil. A blight. Our current plights are a sign
+the world is trying to eradicate us. The Earth is, and has a right to be,
+angry with us. The manifestation of anger is natural disasters. They write the
+Fourth to show these are Earth's way of getting back at us. Hence reclamation.
 
-The Song is the focus of 1-3.
 The Void didn't have a large part in the first three, but perhaps it has more
-of a role in the Fourth.
-The Void will claim us.
+of a role in the Fourth. "The Void will claim us."
 
-Takes a completely different view and interprets some of the first three in
-another way.
+Since this group has such a different viewpoint, it might make some sense to
+reframe _portions_ of the other Mechanisms in this light. So we have an
+understanding of what this perversion of ideas really is. But it should fit
+into the overall story. I am _not_ going to just re-write them in this tone.
+Perhaps the preface covers some of this?
 
-Whereas the original myth says that the song is constantly playing, and also
-refining itself, and we are the highest point of perfection reached so far,
-this author things we are a mistake and evil and the earth has a right to be
-angry with us and the manifestation of that anger is natural disasters.
+The world is anthropomorphized. But does the author need to assert how the
+Inanimate has these qualities, like being angry, sleeping, rousing, etc?
 
-It might make sense to spend some time reframing the other mechanisms in terms
-of this viewpoint.
-Yes, it makes sense to do this to a degree.
-So we have an understanding of what this perversion of ideas really is.
-Need to work it into the overall story though.
-I'm _NOT_ going to just rewrite them in this tone.
-Perhaps some of the preface covers this.
+The world feels it has the right to be left alone, even though the original
+three say it was part of the organization of the Song. The main difference
+between the first Three and the Fourth is that the Fourth doesn't agree that
+we are part of the Song's progress.
 
-The world for some reason feels it has a right to be left alone, even though
-it was part of the organization of the Song
+The Fourth will show that the Earth is struggling to kill us. But part of it
+won't really make sense, right? If the world is so large, shouldn't it be
+strong enough to kill is quite easily, in an instant? Why does it use natural disasters which
+aren't effective enough to kill us all right away? In fact, most of the
+natural disasters are tame in terms of total life lost. I guess the earth does
+have limits. And it's trying to kill life over the entire surface. This could
+mean that it gets ADD and has a hard time focusing on one area. Or it's like
+trying to scratch an itch all over your body. You can't get rid of it all,
+because it's all over, even though you're large in size compared to the itch
+itself.
 
-Does this author need to assert anything like how the Inanimate has anthropocentric qualities like being angry and sleeping and rousing, etc?
+Does she try to emit a smog to smother us and deprive us of light? When light
+can't reach the creatures, does life continue? Perhaps life needs light _and_
+the song to flourish?
 
-But if the world were so strong, because of how large it is, shouldn't it be
-able to wipe all life out in an instant?
-What about her emitting the smog an attempt to smother us and deprive us of light?
+The point of this Mechanism is to say that we do not belong here. But, then,
+musn't it come to an asinine conclusion that contradicts itself?
 
-When the light can't reach the creatures, does life continue?
-Or does life need light AND the song to flourish?
+It takes the events that are currently happening, the natural disasters, and
+then extrapolates what will happen. Far worse things will happen in the
+future. The world will awake and see all the evil wrought by the Animate.
 
-The whole point of this Mechanism is to point out that we do not belong. But
-it must then come to some asinine conclusion that contradicts itself.
+This could be an analogy to either redemption or punishment (here called
+Reclamation) occurring some time in the future.
 
-Is this currently happening, or perhaps this Mechanism just says that it will
-happen at some time in the future.
-When it awakes and sees all the evil wrought by the Animate.
-This would be a convenient analogy to either redeption or punishment (here
-called Reclamation) occurring some time in the future.
-So it can always be said to be just around the corner.
+A convenience of this future event is that it can always be said to be right
+around the corner.
 
-The ending goes against anthropocentric tendencies.
+The ending of the Fourth will go against normal human-focused tendencies.
 
-Fourth tries to worry, scare, and draw people to need to repent and feel
-ashamed at life.
+The aim of the Fourth is to worry, scare, and draw people to repent and feel
+ashamed at life. They can build a congregation of people through these
+tactics.
 
 # 9
 
@@ -430,6 +433,8 @@ Beware. Repent. Regret.
 Unless we repent, repent, delay, she will soon wash we, the lecherous Animate,
 from her heart, mind, body. Unless we appease, we'll be dead when she begins
 her Reclamation.
+
+The Void will claim us.
 
 ---
 
