@@ -324,7 +324,7 @@ top of us after we've fallen into them?
 
 Yea, do we all know of the Song and the Inanimate and, at last, the Animate.
 But the current understanding is flawed and knows nothing of what is happening
-now or will soom come to be.
+now or will soon come to be.
 
 Unlike those before me, I describe the outrage of Her Mechanism.
 
