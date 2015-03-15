@@ -217,14 +217,14 @@ we are part of the Song's progress.
 
 The Fourth will show that the Earth is struggling to kill us. But part of it
 won't really make sense, right? If the world is so large, shouldn't it be
-strong enough to kill is quite easily, in an instant? Why does it use natural disasters which
-aren't effective enough to kill us all right away? In fact, most of the
-natural disasters are tame in terms of total life lost. I guess the earth does
-have limits. And it's trying to kill life over the entire surface. This could
-mean that it gets ADD and has a hard time focusing on one area. Or it's like
-trying to scratch an itch all over your body. You can't get rid of it all,
-because it's all over, even though you're large in size compared to the itch
-itself.
+strong enough to kill is quite easily, in an instant? Why does it use natural
+disasters which aren't effective enough to kill us all right away? In fact,
+most of the natural disasters are tame in terms of total life lost. I guess
+the earth does have limits. And it's trying to kill life over the entire
+surface. This could mean that it gets ADD and has a hard time focusing on one
+area. Or it's like trying to scratch an itch all over your body. You can't get
+rid of it all, because it's all over, even though you're large in size
+compared to the itch itself.
 
 Does she try to emit a smog to smother us and deprive us of light? When light
 can't reach the creatures, does life continue? Perhaps life needs light _and_
@@ -233,6 +233,7 @@ the song to flourish?
 The point of this Mechanism is to say that we do not belong here. But, then,
 musn't it come to an asinine conclusion that contradicts itself?
 
+It counters the reference of humans (the animate), with an alternate theory.
 It takes the events that are currently happening, the natural disasters, and
 then extrapolates what will happen. Far worse things will happen in the
 future. The world will awake and see all the evil wrought by the Animate.
@@ -247,75 +248,8 @@ The ending of the Fourth will go against normal human-focused tendencies.
 
 The aim of the Fourth is to worry, scare, and draw people to repent and feel
 ashamed at life. They can build a congregation of people through these
-tactics.
-
-# 9
-
-## This is the most recent summary
-
-
-What if we are just an infection that grew while the world was worn down? In
-fact, all life is like this. A blemish on the planet that arose during a weak
-time. Soon the planet will regain its faculties and assert its dominance.
-Strings desintigrated and reached decimation. Deducing harmony - increasing
-entropy. The Song has its own form, one not needing a medium to exist. THe
-stars are large battles which drew crowds... the planets. The surface coming
-into contact with the void formed the atmospheres and oceans, but this made
-the planets sluggish, and so she slept, except for occasionally rousing or
-turning over in her sleep (volcanoes, earthquakes/termoring). Like a person
-running a huge race or doing heavy exertion, then being cooled quickly. makes
-you tired. Bears and hibernation. The bits interact and learn of one
-another... whisperings of order.
-
--The 4M interpretation of 2M-
-
-The All shatters into chucks that are the inanimate planets and galaxies. The
-worlds then (since they are pieces of the All) attempt elegance, but are
-corrupted by the Void - giving rise to the animate. The energy of collusion,
-of coming together, in 2M broke down her defense mechanisms. This allowed the
-animate to take over in 3M. But now her defenses are back up, which causes 4M.
-The inanimate corrects itself and eradicates the animate.
-
-
-Society means confrontation, but above the smog is freedom.
-
-Unlike those before me, I describe the Outrade of Her Mechanism. Her point of
-view is one we ignore, however crucial it is to understanding our now fevered
-plight.
-
-Spitting ash plumes and wasted years(tears), the Fourth Mechanism puts us
-against a layer of corruption in desparate want to feel UV rays.
-
-Magma flung crystalizes in flight; stinging as it litters the ground. Forests
-suction themselves to the earth in an attempt to stifle Cornice. The film of
-vegetation occasionally bursts through by the fingers of the energetic crust.
-Oceans squatting on the depths; trenching the union between void and void.
-
-Cataclysmic clouds creeping, crushing; concurrently catalyzing conversion.
-
-Her exhalations plunder the virii of their strength.
-
-The Fourth tries to counter a reference with humans (the animate) with what it
-predicts will happen based on what it thinks (or perceives and interprets) to
-be happening now. An ending that goes against anthropocentric tendencies, but
-is still build on fear, negativity, and paranoia. Interpretting things all
-wrong.
-
-Since the Song has come to inhabit these elemental bits, the energy leaks out
-or is lessened by the medium, so it needs other energy to replenish that which
-it loses. The Void eats the song. Draws it out of the elemental bits.
-
-And so still the planets slept, hardly noticing its covering. Only stirring as
-when one turns over in the middle of the night.
-
-But what are valleys but graves, and mountains but the dirt to be cast in on
-top of us after we've fallen into them?
-
----
-
-# 10
-
-## This is a combination of all the other drafts of the Fourth.
+tactics. The entire theory is built on fear, negativity, and paranoia.
+Interpreting things all wrong.
 
 ---
 
@@ -326,7 +260,7 @@ top of us after we've fallen into them?
 ### Preface
 
 Yea, do we all know of the Song and the Inanimate and, at last, the Animate.
-But the current understanding is flawed and knows nothing of what is happening
+But the current understanding is flawed and knows nothing of what happens
 now or will soon come to be.
 
 Unlike those before me, I describe the outrage of Her Mechanism.
@@ -342,6 +276,25 @@ plight.
 Echelons of order. Governance. A self-guided system is bound to fault; error.
 Decimator of organization (the void).
 
+Strings desintigrated and reached decimation. Reducing harmony - increasing
+entropy. The Song has its own form, one not needing a medium to exist.
+
+Since the Song has come to inhabit these elemental bits, the energy leaks out
+or is lessened by the medium, so it needs other energy to replenish that which
+it loses. The Void eats the song. Draws it out of the elemental bits.
+
+The bits interact and learn of one another... whisperings of order.
+
+-The 4M interpretation of 2M-
+
+The All shatters into chucks that are the inanimate planets and galaxies. The
+worlds then (since they are pieces of the All) attempt elegance, but are
+corrupted by the Void - giving rise to the animate. The energy of collusion,
+of coming together, in 2M broke down her defense mechanisms. This allowed the
+animate to take over in 3M. But now her defenses are back up, which causes 4M.
+The inanimate corrects itself and eradicates the animate.
+
+
 It began with the worms. Devouring the surface of the world, tunneling and
 delving. Causing an itch that stirred the Inanimate. And once roused, It
 noticed the creeping crawling filth that covered Its surface.
@@ -354,11 +307,9 @@ layer of corruption in desperate want to feel UV rays. (Earth is polluting the
 air with smog to kill us so she can feel the sun on her rocky crust again.)
 
 Magma flung crystalizes in flight; stinging as it litters the ground. Forests
-suction themselves to earth in an attempt to stifle cornice. The film of
+suction themselves to earth in an attempt to stifle Cornice. The film of
 vegetation occasionally burst through by the fingers of the energetic crust.
 Oceans squatting on the depths; trenching the union between Void and Void.
-Sandwiched between stunting growth and eviserating heat, our mother struggles
-outward. But what she spits is far sweeter than previous mechanisms.
 
 Cataclysmic clouds creeping, crushing, currently catalyzing conversion.
 
@@ -377,6 +328,9 @@ storms of anguish.
 The earth was lulled to sleep, that we then arose, but when the world wakes,
 we will be in for a lot of trouble.
 
+Like a person running a huge race or doing heavy exertion, then being cooled
+quickly. makes you tired. Bears and hibernation.
+
 We are an infection the world will soon kill off.
 
 The energy of collusion, of coming together, in 2 broke down Her defense
@@ -384,6 +338,14 @@ mechanisms. This allowed the Animate to take over in 3. But now her defenses
 are back up, which causes the Fourth. (This is what the Fourth will interpret
 the first 3 to mean).
 
+The surface coming into contact with the void formed the atmospheres and oceans, but this made the planets sluggish, and so she slept, except for occasionally rousing or turning over in her sleep (volcanoes, earthquakes/termoring).
+
+And so still the planets slept, hardly noticing its covering. Only stirring as
+when one turns over in the middle of the night.
+
+What if we are just an infection that grew while the world was worn down? In
+fact, all life is like this. A blemish on the planet that arose during a weak
+time. Soon the planet will regain its faculties and assert its dominance.
 
 We delve deeply; she groans and tosses fitfully. We spread dominion; she
 lashes back with fire and chasms and floods. We, the crawling muck, have only
@@ -435,6 +397,9 @@ from her heart, mind, body. Unless we appease, we'll be dead when she begins
 her Reclamation.
 
 The Void will claim us.
+
+But what are valleys but graves, and mountains but the dirt to be cast in on
+top of us after we've fallen into them?
 
 ---
 
