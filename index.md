@@ -297,8 +297,10 @@ at the planets and spat out air and water, mere imitations of the All it consume
 These corruptions then sat and increased in potency. They became the Animate -
 a circus of mockery - and surreptitiously engulfed the sleeping planets.
 
-This film has prevented the Song from reaching Her, our Host, so she dozes on,
+This film prevented the Song from reaching Her, our Host, so she dozes on,
 hardly noticing Her covering.
+
+
 Only stirring as when one turns over in the middle of the night. ???
 
 #TODO: She stirs
@@ -311,6 +313,16 @@ Devouring the surface of the world, tunneling and delving.
 Causing an itch that stirred the Inanimate.
 
 We emit smoke and soot; she coughs madly in storms of anguish.
+And our gases have choked her lungs and made her eyesight foggy.
+
+But not forever will she sleep.
+And she will discover our trespass and Reclaim what is hers.
+
+Already we see indications; the ground trembles, oceans surge, winds topple, fires devour.
+
+Like the tossing of a fitful sleeper, she begins to notice our presence.
+And when she fully awakens, there will be nowhere to hide.
+
 
 And once roused, It noticed the creeping crawling filth that covered Its
 surface.
@@ -327,6 +339,8 @@ Forests suctioned themselves to Earth in an attempt to stifle Cornice.
 The film of vegetation occasionally burst through by the fingers of the
 energetic crust.
 The grass and trees smother Her surface, while her fingers thrust upward.
+
+Her spine shall burst forth from the forests, her fingers pry loose from the plains, her skin slough off our cities.
 
 #TODO: How she's reacting so far
 Her surface has stretched, bent, contorted to stop the spread of the grasses,
@@ -372,9 +386,13 @@ But then, life is resolute.
 It desires to cover and consume and feed itself, gorging to as to multiply.
 
 #TODO: Declaring what will happen in the future.
+The destruction has begun and there is no end in sight.
+
 We, the crawling muck, have only limited time before she is fully awakened and
 her attention is focused on us.
 To be rid of the eaters of the song.
+
+We've taken up residence on hallowed ground, tarnishes the land, sullied the air, corrupted the native presence and hope with our greed, malice, bickering, and thoughtlessness.
 
 And where She had rested peacefully before, She set to reclaim herself and be
 rid of the pestilance, the virii, fungus, parasites.
@@ -393,6 +411,8 @@ The end shall soon be upon us when she rains sulfur upon her pockmarked,
 scarred skin.
 When she splits open her hide and eats the eaters.
 
+And then may she become animated in a way that not even we can.
+
 The ashes will be stirred in the wind as she rolls from her bed and shakes off
 our sloughing carcasses.
 She will spit the Song from her mouth and quench the filth which steal her
@@ -408,34 +428,6 @@ The Void will claim us.
 
 But what are valleys but graves, and mountains but the dirt to be cast in on
 top of us after we've fallen into them?
-
-
----
-
-Note: This is one of my favorite interpretations. Can we have the voice of all
-the rest of it be like this?
-
-Since the covering of the Inanimate, we have lulled the planet into slumber,
-like a child under blankets.
-
-And our gases have choked her lungs and made her eyesight foggy.
-
-But not forever will she sleep.
-
-And she will discover our tresspass and Reclaim what is hers.
-
-Already we see indications; the ground trembles, oceans surge, winds topple, fires devour.
-
-Like the tossing of a fitful sleeper, she begins to notice our presence.
-And when she fully awakens, there will be nowhere to hide.
-
-Her spine shall burst forth from the forests, her fingers pry loose from the plains, her skin slough off our cities.
-
-And then may she become animated in a way that not even we can.
-
-The destruction has begun and there is no end in sight.
-
-We've taken up residence on hallowed ground, tarnishes the land, sullied the air, corrupted the native presence and hope with our greed, malice, bickering, and thoughtlessness.
 
 Unless we repent our evil ways and live without impact... go unnoticed... we
 shall be underneath the soil, fire eating our air, while mountains topple over
