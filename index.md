@@ -177,11 +177,7 @@ enacts and surely _is_.
 
 ---
 
-## The Fourth Mechanism
-
-### Reclamation
-
-# These are notes
+## The Fourth Mechanism Notes
 
 The Fourth Mechanism is a "modern" addition to an original three Mechanism
 creation myth.
@@ -255,155 +251,98 @@ Interpreting things all wrong.
 
 # The Fourth Mechanism
 
-## Reclamation
+## Preface
 
-### Preface
+Unlike those before me, I describe the outrage of our Host.
 
-Yea, do we all know of the Song and the Inanimate and, at last, the Animate.
-But the current understanding is flawed and knows nothing of what happens
-now or will soon come to be.
-
-Unlike those before me, I describe the outrage of Her Mechanism.
-
-Sandwiched between stunting growth and eviscerating heat, our Mother struggles
-outward.
-But what she spits is far sweeter than previous Mechanisms.
+We do all know of the Song, and the Inanimate, and, at last, the Animate. But
+the current understanding is flawed and knows little of what happens now, and
+nothing of what will soon come to be.
 
 Her point of view is one we ignore, however crucial it is to our now-fevered
-plight.
+plight. We, in our ignorance, have angered Her.
 
----
+## Reclamation
 
-Echelons of order and governance.
-A self-guided system is bound to fault; error.
-Decimator of organization (the void).
+Eons back, the All shattered and its chunks formed the Inanimate. These bodies
+resonated with the Song, strove for elegance, and were bastions of order and
+governance.
 
-Strings desintigrated and reached decimation.
-Reducing harmony - increasing entropy.
-The Song has its own form, one not needing a medium to exist.
+The effort of this coalescence and modification eventually exhausted them,
+however. They became sluggish, and later fell in to slumber.
 
-Since the Song has come to inhabit these elemental bits, the energy leaks out
-or is lessened by the medium, so it needs other energy to replenish that which
-it loses.
-The Void eats the song.
-Draws it out of the elemental bits.
+The Void, which spawned the Cataclysm, was not spent. That decimator of
+organization leeched the Song from the Animate, and perverted it. The Void ate
+at the planets and spat out air and water, mere imitations of the All it consumed.
 
-The bits interact and learn of one another... whisperings of order.
+These corruptions then sat and increased in potency. They became the Animate -
+a circus of mockery - and surreptitiously engulfed the sleeping planets.
 
--The 4M interpretation of 2M-
+This film has prevented the Song from reaching Her, our Host, so she dozes on,
+hardly noticing Her covering.
+Only stirring as when one turns over in the middle of the night. ???
 
-The All shatters into chucks that are the inanimate planets and galaxies.
-The worlds then (since they are pieces of the All) attempt elegance, but are
-corrupted by the Void - giving rise to the animate.
-The energy of collusion, of coming together, in 2M broke down her defense
-mechanisms.
-This allowed the animate to take over in 3M.
-But now her defenses are back up, which causes 4M.
-The inanimate corrects itself and eradicates the animate.
-
+#TODO: She stirs
+Yet we see indications that she rouses.
+(volcanoes, earthquakes/termoring)
+But we can see evidence of her awareness.
 
 It began with the worms.
 Devouring the surface of the world, tunneling and delving.
 Causing an itch that stirred the Inanimate.
+
+We emit smoke and soot; she coughs madly in storms of anguish.
+
 And once roused, It noticed the creeping crawling filth that covered Its
 surface.
+All creeping creatures as mites that scurry and itch.
+The creatures on this earth: a pestilence to Her.
+We are an infection the world will soon kill off.
+What if we are just an infection that grew while the world was worn down?
+In fact, all life is like this.
+A blemish on the planet that arose during a weak time.
 
-Grass clinging, trees protruding, creatures roaming - tresspassing - all
-about.
+#TODO: She notices us
+Grass clinging, trees protruding, creatures roaming - trespassing.
+Forests suctioned themselves to Earth in an attempt to stifle Cornice.
+The film of vegetation occasionally burst through by the fingers of the
+energetic crust.
+The grass and trees smother Her surface, while her fingers thrust upward.
+
+#TODO: How she's reacting so far
+Her surface has stretched, bent, contorted to stop the spread of the grasses,
+but the Animate has spread its roots afar.
+Mountains rise up, chasms yawn, earthquakes are chills down the spine because
+we are creeping muck-vermin.
+The forests strangling her breath.
+And we see where she has managed to flaw free and break through the crust
+we've set.
+
+Oceans boiled and the waves became tumultuous.
+The sky darkened and winds conspired to form great storms.
+The land shook with wrath and vehemently vomited molten core and poisonous
+fume.
+Waters (rivers and lakes) spread and drowned.
+Mountains raised up and thrust bony appendages through the muck and mire.
 
 Spitting ash plumes and wasted tears, the Fourth Mechanism pits us against a
 layer of corruption in desperate want to feel UV rays.
 (Earth is polluting the air with smog to kill us so she can feel the sun on
 her rocky crust again.)
-
 Magma flung crystalizes in flight; stinging as it litters the ground.
-Forests suction themselves to earth in an attempt to stifle Cornice.
-The film of vegetation occasionally burst through by the fingers of the
-energetic crust.
-Oceans squatting on the depths; trenching the union between Void and Void.
-
 Cataclysmic clouds creeping, crushing, currently catalyzing conversion.
-
 Her exhalations plunder the virii of their strength.
 
-The earth is a pockmarked and scarred world.
-Mountains rise up, chasms yawn, earthquakes are chills down the spine because
-we are creeping muck-vermin.
-We, in our ignorance, have angered Her.
-Her wrath and retribution are nigh and there will be no corner where her
-revenge does not strike.
-The creatures on this earth: a pestilence to Her.
-The grass and trees smother Her surface, while her fingers thrust upward.
-All creeping creatures as mites that scurry and itch.
-It has been long since her birth and now she does slumber.
-But we can see evidence of her awareness.
-We emit smoke and soot; she coughs madly in storms of anguish.
-
-The earth was lulled to sleep, that we then arose, but when the world wakes,
-we will be in for a lot of trouble.
-
-Like a person running a huge race or doing heavy exertion, then being cooled
-quickly. makes you tired. Bears and hibernation.
-
-We are an infection the world will soon kill off.
-
-The energy of collusion, of coming together, in 2 broke down Her defense
-mechanisms.
-This allowed the Animate to take over in 3.
-But now her defenses are back up, which causes the Fourth.
-(This is what the Fourth will interpret the first 3 to mean).
-
-The surface coming into contact with the void formed the atmospheres and
-oceans, but this made the planets sluggish, and so she slept, except for
-occasionally rousing or turning over in her sleep (volcanoes,
-earthquakes/termoring).
-
-And so still the planets slept, hardly noticing its covering.
-Only stirring as when one turns over in the middle of the night.
-
-What if we are just an infection that grew while the world was worn down?
-In fact, all life is like this.
-A blemish on the planet that arose during a weak time.
-Soon the planet will regain its faculties and assert its dominance.
-
-We delve deeply; she groans and tosses fitfully.
-We spread dominion; she lashes back with fire and chasms and floods.
-We, the crawling muck, have only limited time before she is fully awakened and
-her attention is focused on us.
-To be rid of the eaters of the song.
-Her surface has stretched, bent, contorted to stop the spread of the grasses,
-but the Animate has spread its roots afar.
-The forests strangling her breath.
-And we see where she has managed to flaw free and break through the crust
-we've set.
-There is no denying the grief we've caused; that which she now smells accutely
-and will make herself rid of.
-The end shall soon be upon us when she rains sulfer upon her pockmarked skin.
-When she splits open her hide and eats the eaters.
-The ashes will be stirred in the wind as she rolls from her bed and shakes off
-our sloughing carcasses.
-She will spit the Song from her mouth and quench the fith which steal her
-energy.
-
-And where It had rested peacefully before, It set to reclaim itself and be rid
-of the pestilance, the virii, fungus, parasites.
-
-Oceans boiled and the waves became tumultuous.
-The sky darkened and winds conspired to form great storms.
-The land shook with wrath and vehemently vomitted molten core and poisonous
-fume.
-
-Waters (rivers and lakes) spread and drowned.
-Mountains raised up and thrust bony appendages through the muck and mire.
-
 And so here we are today with the Earth revolting against the Animate.
-
 Taking action, growing more desperate increasingly violent.
 Not to rest until it has purged itself of the smothering Film.
 Usurpers and encroachers.
-
 So here we find ourselves today... Fighting a battled for a place on which we
 have no claim.
+
+#TODO: What we do to fight back
+We delve deeply; she groans and tosses fitfully.
+We spread dominion; she lashes back with fire and chasms and floods.
 
 We attempt to thwart Its designs by delving, building, marring.
 Fill the air with a thick dense cloud (smog) designed to lure it back to a
@@ -413,12 +352,32 @@ Ever waring, never conquering.
 But then, life is resolute.
 It desires to cover and consume and feed itself, gorging to as to multiply.
 
+#TODO: Declaring what will happen in the future.
+We, the crawling muck, have only limited time before she is fully awakened and
+her attention is focused on us.
+To be rid of the eaters of the song.
+
+And where She had rested peacefully before, She set to reclaim herself and be
+rid of the pestilance, the virii, fungus, parasites.
 We are a harmful, prideful, foolish thing.
 A mistake.
 Not an embodiment of the Song.
 The world has every right to assert its dominance, its independence, and wipe
 us out.
 We shouldn't fight it at all.
+
+There is no denying the grief we've caused; that which she now smells accutely
+and will make herself rid of.
+Her wrath and retribution are nigh and there will be no corner where her
+revenge does not strike.
+The end shall soon be upon us when she rains sulfur upon her pockmarked,
+scarred skin.
+When she splits open her hide and eats the eaters.
+
+The ashes will be stirred in the wind as she rolls from her bed and shakes off
+our sloughing carcasses.
+She will spit the Song from her mouth and quench the filth which steal her
+energy.
 
 Beware. Repent. Regret.
 
@@ -431,7 +390,35 @@ The Void will claim us.
 But what are valleys but graves, and mountains but the dirt to be cast in on
 top of us after we've fallen into them?
 
+### THE GIST OF THINGS!
+She's asleep but she tosses and turns.
+But it's gotten worse.
+It began with the worms, digging and itching.
+But what really set her off was the smoke from our fires.
+Then she realizes that we've covered her and are wearing her down.
+She starts to fight back with earth quakes and sees all the Animate that are
+smothering her in various ways.
+She then changes the surface to try to get rid of us. That gives rise to the
+mountains, valleys, and volcanoes.
+We then fight back further. Trying to spread dominion and further delving.
+This only aggravates her more. We haven't been able to lull her back to sleep.
+As she gains more energy, we'll be in more trouble.
+Soon her defenses will be back up, which is the threat of her Reclaming her
+surface.
+The Inanimate will correct itself and eradicate the Animate.
+Soon the planet will regain its faculties and assert its dominance.
+###
+
+
+
+
+
 ---
+
+
+
+
+
 
 Note: This is one of my favorite interpretations. Can we have the voice of all
 the rest of it be like this?
@@ -469,4 +456,18 @@ Enduring in spite of us.
 
 We sit on the instrument's strings, dampening the chords.
 She will strum and she will be heard.
+
+---
+
+# Fragments
+
+We want to keep these for use in another piece, but they don't belong here.
+
+Sandwiched between stunting growth and eviscerating heat, our Mother struggles
+outward.
+But what she spits is far sweeter than previous Mechanisms.
+
+A self-guided system is bound to fault; error.
+
+Oceans squatting on the depths; trenching the union between Void and Void.
 
