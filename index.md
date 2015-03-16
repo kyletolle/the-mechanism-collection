@@ -262,6 +262,25 @@ nothing of what will soon come to be.
 Her point of view is one we ignore, however crucial it is to our now-fevered
 plight. We, in our ignorance, have angered Her.
 
+### THE GIST OF THINGS!
+She's asleep but she tosses and turns.
+But it's gotten worse.
+It began with the worms, digging and itching.
+But what really set her off was the smoke from our fires.
+Then she realizes that we've covered her and are wearing her down.
+She starts to fight back with earth quakes and sees all the Animate that are
+smothering her in various ways.
+She then changes the surface to try to get rid of us. That gives rise to the
+mountains, valleys, and volcanoes.
+We then fight back further. Trying to spread dominion and further delving.
+This only aggravates her more. We haven't been able to lull her back to sleep.
+As she gains more energy, we'll be in more trouble.
+Soon her defenses will be back up, which is the threat of her Reclaming her
+surface.
+The Inanimate will correct itself and eradicate the Animate.
+Soon the planet will regain its faculties and assert its dominance.
+###
+
 ## Reclamation
 
 Eons back, the All shattered and its chunks formed the Inanimate. These bodies
@@ -390,35 +409,8 @@ The Void will claim us.
 But what are valleys but graves, and mountains but the dirt to be cast in on
 top of us after we've fallen into them?
 
-### THE GIST OF THINGS!
-She's asleep but she tosses and turns.
-But it's gotten worse.
-It began with the worms, digging and itching.
-But what really set her off was the smoke from our fires.
-Then she realizes that we've covered her and are wearing her down.
-She starts to fight back with earth quakes and sees all the Animate that are
-smothering her in various ways.
-She then changes the surface to try to get rid of us. That gives rise to the
-mountains, valleys, and volcanoes.
-We then fight back further. Trying to spread dominion and further delving.
-This only aggravates her more. We haven't been able to lull her back to sleep.
-As she gains more energy, we'll be in more trouble.
-Soon her defenses will be back up, which is the threat of her Reclaming her
-surface.
-The Inanimate will correct itself and eradicate the Animate.
-Soon the planet will regain its faculties and assert its dominance.
-###
-
-
-
-
 
 ---
-
-
-
-
-
 
 Note: This is one of my favorite interpretations. Can we have the voice of all
 the rest of it be like this?
