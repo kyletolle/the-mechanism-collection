@@ -183,7 +183,7 @@ The Fourth Mechanism is a "modern" addition to an original three Mechanism
 creation myth.
 
 The original myth says the Song constantly plays and refines itself. We are
-the height of perfection so far. The Song of the focus of One through Three.
+the height of perfection so far. The Song is the focus of One through Three.
 
 The author of the Fourth has a hatred for mankind. They are a harbinger of
 doom, and part of a group who honors pessimism. They re-interpret the tones
@@ -213,7 +213,7 @@ we are part of the Song's progress.
 
 The Fourth will show that the Earth is struggling to kill us. But part of it
 won't really make sense, right? If the world is so large, shouldn't it be
-strong enough to kill is quite easily, in an instant? Why does it use natural
+strong enough to kill us quite easily - in an instant? Why does it use natural
 disasters which aren't effective enough to kill us all right away? In fact,
 most of the natural disasters are tame in terms of total life lost. I guess
 the earth does have limits. And it's trying to kill life over the entire
@@ -297,149 +297,81 @@ at the planets and spat out air and water, mere imitations of the All it consume
 These corruptions then sat and increased in potency. They became the Animate -
 a circus of mockery - and surreptitiously engulfed the sleeping planets.
 
-This film prevented the Song from reaching Her, our Host, so she dozes on,
-hardly noticing Her covering.
+This film prevented the Song from reaching Her, our Host, so she dozes, hardly
+noticing Her covering.
 
+But She will not sleep forever. Indeed, we see indications of Her awareness of
+our presence.
 
-Only stirring as when one turns over in the middle of the night. ???
+It began with the worms. Devouring the surface of the world; tunneling and
+delving. Causing an itch that stirred the Inanimate.
 
-#TODO: She stirs
-Yet we see indications that she rouses.
-(volcanoes, earthquakes/termoring)
-But we can see evidence of her awareness.
+The tossing of the fitful Sleeper is evidence She rouses.
 
-It began with the worms.
-Devouring the surface of the world, tunneling and delving.
-Causing an itch that stirred the Inanimate.
+But all creeping creatures on this Earth are as mites, which scurry and
+burrow. Growing bolder each day. Unknowingly drawing attention to their
+actions.
 
-We emit smoke and soot; she coughs madly in storms of anguish.
-And our gases have choked her lungs and made her eyesight foggy.
+Do not the grounds tremble, oceans surge, winds topple, and fires devour?
 
-But not forever will she sleep.
-And she will discover our trespass and Reclaim what is hers.
+Our smoke maintains her sonorous slumber, and our soot fogs her perception.
 
-Already we see indications; the ground trembles, oceans surge, winds topple, fires devour.
+Her surface stretches, bends, contorts to stop the spread of the Animate film.
+But our roots spread afar.
 
-Like the tossing of a fitful sleeper, she begins to notice our presence.
-And when she fully awakens, there will be nowhere to hide.
+When She fully awakens, She will discover our trespass and Reclaim what is
+Hers.
 
-
-And once roused, It noticed the creeping crawling filth that covered Its
-surface.
-All creeping creatures as mites that scurry and itch.
-The creatures on this earth: a pestilence to Her.
-We are an infection the world will soon kill off.
-What if we are just an infection that grew while the world was worn down?
-In fact, all life is like this.
-A blemish on the planet that arose during a weak time.
-
-#TODO: She notices us
-Grass clinging, trees protruding, creatures roaming - trespassing.
-Forests suctioned themselves to Earth in an attempt to stifle Cornice.
-The film of vegetation occasionally burst through by the fingers of the
-energetic crust.
-The grass and trees smother Her surface, while her fingers thrust upward.
-
-Her spine shall burst forth from the forests, her fingers pry loose from the plains, her skin slough off our cities.
-
-#TODO: How she's reacting so far
-Her surface has stretched, bent, contorted to stop the spread of the grasses,
-but the Animate has spread its roots afar.
-Mountains rise up, chasms yawn, earthquakes are chills down the spine because
-we are creeping muck-vermin.
-The forests strangling her breath.
-And we see where she has managed to flaw free and break through the crust
+Imagine that day, soon arriving, where She arises to discover the thick crust
 we've set.
 
-Oceans boiled and the waves became tumultuous.
-The sky darkened and winds conspired to form great storms.
-The land shook with wrath and vehemently vomited molten core and poisonous
-fume.
-Waters (rivers and lakes) spread and drowned.
-Mountains raised up and thrust bony appendages through the muck and mire.
+Her spine shall burst forth from the forests which strangle and stifle cornice.
+Her fingers will claw through the plains and yawn chasms. Her skin to slough
+off our civilizations - pestilence trespassing.
 
-Spitting ash plumes and wasted tears, the Fourth Mechanism pits us against a
-layer of corruption in desperate want to feel UV rays.
-(Earth is polluting the air with smog to kill us so she can feel the sun on
-her rocky crust again.)
-Magma flung crystalizes in flight; stinging as it litters the ground.
-Cataclysmic clouds creeping, crushing, currently catalyzing conversion.
-Her exhalations plunder the virii of their strength.
+Oceans shall boil to a tumult. Rivers shall spread and drown the land which
+shakes in wrath.
 
-And so here we are today with the Earth revolting against the Animate.
-Taking action, growing more desperate increasingly violent.
-Not to rest until it has purged itself of the smothering Film.
-Usurpers and encroachers.
-So here we find ourselves today... Fighting a battled for a place on which we
-have no claim.
+The skys will darken and winds will conspire to great storms. Cataclysmic
+clouds creeping, crushing, catalyzing conversion.
 
-#TODO: What we do to fight back
-We delve deeply; she groans and tosses fitfully.
-We spread dominion; she lashes back with fire and chasms and floods.
+Magma vehemently vomited will crystallize in flight; stinging as it litters the
+ground.
 
-We attempt to thwart Its designs by delving, building, marring.
-Fill the air with a thick dense cloud (smog) designed to lure it back to a
-sonorous slumber.
-Ever waring, never conquering.
+Spitting poisonous plumes and wasted tears, this Fourth Mechanism will plunder us, the virus, of our strength.
 
-But then, life is resolute.
-It desires to cover and consume and feed itself, gorging to as to multiply.
+And so we shall find ourselves, battling for a place on which we have no
+claim.
 
-#TODO: Declaring what will happen in the future.
-The destruction has begun and there is no end in sight.
+We will revolt. Ever waring, never conquering. Strive to thwart Her designs by
+blasting, marring, delving deeper. Though, what are tunnels but graves in
+which to fall, and mountains but dirt to be cast over us?
 
-We, the crawling muck, have only limited time before she is fully awakened and
-her attention is focused on us.
-To be rid of the eaters of the song.
+She will grow more desperate; increasingly violent. Not to rest until She has
+purged herself of usurpers and encroachers.
+To be rid of the eaters of the Song. #TODO: Remove this?
 
-We've taken up residence on hallowed ground, tarnishes the land, sullied the air, corrupted the native presence and hope with our greed, malice, bickering, and thoughtlessness.
+The Animate is resolute, and we've spread our dominion. A harmful, prideful,
+foolish mistake.
 
-And where She had rested peacefully before, She set to reclaim herself and be
-rid of the pestilance, the virii, fungus, parasites.
-We are a harmful, prideful, foolish thing.
-A mistake.
-Not an embodiment of the Song.
-The world has every right to assert its dominance, its independence, and wipe
-us out.
-We shouldn't fight it at all.
+Our residence is hallowed ground. Now tarnished, sullied, abused through
+malice, bickering, and thoughtlessness.
 
-There is no denying the grief we've caused; that which she now smells accutely
-and will make herself rid of.
-Her wrath and retribution are nigh and there will be no corner where her
+There is no denying the grief we've caused; that which She shall smell acutely
+and make herself rid of.
+
+Her wrath and retribution are nigh and there will be no corner where Her
 revenge does not strike.
-The end shall soon be upon us when she rains sulfur upon her pockmarked,
-scarred skin.
+Then may she become animated in a way that not even we can.
 When she splits open her hide and eats the eaters.
 
-And then may she become animated in a way that not even we can.
-
-The ashes will be stirred in the wind as she rolls from her bed and shakes off
-our sloughing carcasses.
-She will spit the Song from her mouth and quench the filth which steal her
-energy.
-
-Beware. Repent. Regret.
-
-Unless we repent, repent, delay, she will soon wash we, the lecherous Animate,
-from her heart, mind, body.
-Unless we appease, we'll be dead when she begins her Reclamation.
-
-The Void will claim us.
-
-But what are valleys but graves, and mountains but the dirt to be cast in on
-top of us after we've fallen into them?
-
-Unless we repent our evil ways and live without impact... go unnoticed... we
-shall be underneath the soil, fire eating our air, while mountains topple over
-into the pits that have opened under us, and we shall be buried, dead, and
-forever resented for our malfeasance.
-
-We've interrupted the Song.
-It'll be corrected and go on.
-Enduring in spite of us.
+Unless we beware, regret, repent, the Void will claim us, the lecherous
+Animate. She will spit the Song from her mouth, and our ashes shall stir in
+the wind as she shakes off our carcasses.
 
 We sit on the instrument's strings, dampening the chords.
-She will strum and she will be heard.
+
+She will strum and She will be heard.
 
 ---
 
@@ -455,3 +387,22 @@ A self-guided system is bound to fault; error.
 
 Oceans squatting on the depths; trenching the union between Void and Void.
 
+She coughs madly in storms of anguish.
+
+We are a film. Her fingers of the energetic crust pry loose from the plains.
+
+Mountains raised up and thrust bony appendages through the muck and mire.
+
+Earth is polluting the air with smog to kill us so she can feel the sun on
+her rocky crust again.
+
+We, the crawling muck, have only limited time before she is fully awakened and
+her attention is focused on us.
+
+But then, life is resolute.
+It desires to cover and consume and feed itself, gorging to as to multiply.
+
+Unless we repent our evil ways and live without impact... go unnoticed... we
+shall be underneath the soil, fire eating our air, while mountains topple over
+into the pits that have opened under us, and we shall be buried, dead, and
+forever resented for our malfeasance.
