@@ -181,14 +181,14 @@ enacts and surely _is_.
 
 ## Preface
 
-Unlike those before me, I describe the outrage of our Host.
+Unlike those before me, I describe Her outrage.
 
-We do all know of the Song, and the Inanimate, and, at last, the Animate. But
-the current understanding is flawed and knows little of what happens now, and
+We do all know of the Song, the Inanimate, and, at last, the Animate. But
+our current understanding is flawed. We know little of what happens now, and
 nothing of what will soon come to be.
 
 Her point of view is one we ignore, however crucial it is to our now-fevered
-plight. We, in our ignorance, have angered Her.
+plight.
 
 ### THE GIST OF THINGS!
 She's asleep but she tosses and turns.
@@ -220,64 +220,53 @@ however. They became sluggish, and later fell in to slumber.
 
 The Void, which spawned the Cataclysm, was not spent. That decimator of
 organization leeched the Song from the Animate, and perverted it. The Void ate
-at the planets and spat out air and water, mere imitations of the All it consumed.
+at the planets and spat out mere imitations of the All it consumed - air and
+water.
 
-These corruptions then sat and increased in potency. They became the Animate -
-a circus of mockery - and surreptitiously engulfed the sleeping planets.
-
-This film prevented the Song from reaching Her, our Host, so she dozes, hardly
+These corruptions then sat and increased in potency. In stealing away the
+light and siphoning off the Song, they became the Animate - a circus of
+mockery. Their film surreptitiously engulfed Her. So She dozes, hardly
 noticing Her covering.
 
-But She will not sleep forever. Indeed, we see indications of Her awareness of
-our presence.
+But the tossing of the fitful Sleeper is evidence She rouses.
 
 It began with the worms. Devouring the surface of the world; tunneling and
 delving. Causing an itch that stirred the Inanimate.
 
-The tossing of the fitful Sleeper is evidence She rouses.
-
-But all creeping creatures on this Earth are as mites, which scurry and
-burrow. Growing bolder each day. Unknowingly drawing attention to their
-actions.
+But all creeping creatures on this Earth are to Her as mites, which scurry and
+burrow. We grow more energetic each day, and unwittingly drawing attention to
+our actions.
 
 Do not the grounds tremble, oceans surge, winds topple, and fires devour?
+Daily does it worsen. Her surface erupts, contorts, and heaves in reaction to
+us - to stop us. But our roots spread afar.
 
-Our smoke maintains her sonorous slumber, and our soot fogs her perception.
+Our smoke lengthens Her sonorous slumber, and our soot fogs Her perception. But She will not sleep forever.
 
-Her surface stretches, bends, contorts to stop the spread of the Animate film.
-But our roots spread afar.
+Imagine that day, soon arriving, when She awakens and feels the thick crust
+we've set. She will discover our trespass, and Reclaim what is Hers.
 
-When She fully awakens, She will discover our trespass and Reclaim what is
-Hers.
-
-Imagine that day, soon arriving, where She arises to discover the thick crust
-we've set.
-
-Her spine shall burst forth from the forests which strangle and stifle cornice.
-Her fingers will claw through the plains and yawn chasms. Her skin to slough
-off our civilizations - pestilence trespassing.
+Her spine shall burst forth from the forests which strangle and stifle
+cornice. Her fingers will claw through the plains and yawn chasms. Her skin to
+slough off our civilizations - pestilence trespassing.
 
 Oceans shall boil to a tumult. Rivers shall spread and drown the land which
-shakes in wrath.
+shakes in wrath. The skys will darken and winds will conspire to great storms.
+Cataclysmic clouds creeping, crushing, catalyzing conversion.
 
-The skys will darken and winds will conspire to great storms. Cataclysmic
-clouds creeping, crushing, catalyzing conversion.
-
-Magma vehemently vomited will crystallize in flight; stinging as it litters the
-ground.
-
-Spitting poisonous plumes and wasted tears, this Fourth Mechanism will plunder us, the virus, of our strength.
+Magma vehemently vomited will crystallize in flight; stinging as it litters
+the ground. Spitting poisonous plumes and wasted tears, this Fourth Mechanism
+will plunder us, the virus, of our strength.
 
 And so we shall find ourselves, battling for a place on which we have no
 claim.
 
-We will revolt. Ever waring, never conquering. Strive to thwart Her designs by
-blasting, marring, delving deeper. Though, what are tunnels but graves in
+We will revolt. Ever waring, never conquering. Striving to thwart Her designs
+by blasting, marring, delving deeper. Though, what are tunnels but graves in
 which to fall, and mountains but dirt to be cast over us?
 
 She will grow more desperate; increasingly violent. Not to rest until She has
 purged herself of usurpers and encroachers.
-To be rid of the eaters of the Song. #TODO: Remove this?
 
 The Animate is resolute, and we've spread our dominion. A harmful, prideful,
 foolish mistake.
@@ -289,9 +278,8 @@ There is no denying the grief we've caused; that which She shall smell acutely
 and make herself rid of.
 
 Her wrath and retribution are nigh and there will be no corner where Her
-revenge does not strike.
-Then may she become animated in a way that not even we can.
-When she splits open her hide and eats the eaters.
+revenge does not strike. Then may she become animated in a way that not even
+we can. When she splits open her hide and eats the eaters.
 
 Unless we beware, regret, repent, the Void will claim us, the lecherous
 Animate. She will spit the Song from her mouth, and our ashes shall stir in
@@ -341,3 +329,4 @@ Unless we repent our evil ways and live without impact... go unnoticed... we
 shall be underneath the soil, fire eating our air, while mountains topple over
 into the pits that have opened under us, and we shall be buried, dead, and
 forever resented for our malfeasance.
+
