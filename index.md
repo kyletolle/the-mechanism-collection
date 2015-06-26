@@ -181,22 +181,62 @@ enacts and surely _is_.
 
 ## Preface
 
-Unlike those before me, I describe Her outrage.
-
 We have always taken the story of our origins to be truth. Hitherto, there has
-been no reason to question them. But our current understanding is flawed. It
-tells us little about what happens now, and nothing of what will soon come to
-be.
-
-Events transpiring are warnings and alerts and we must take notice. She's
-giving us a chance to change our ways.
+been no reason to question it. But our current understanding is flawed. It
+tells us little about what happens now, and nothing of what soon comes.
 
 Her point of view is one we ignore, however crucial it is to our now-fevered
-plight. We must shed the fanciful and the arrogant blindness we have always
-worn, and lay a hand to the earth to feel how we've harmed Her.
+plight. We must shed the fanciful and arrogant blindness we have always
+worn, and lay a hand to the ground to feel how we've harmed Her.
 
 I must cast a light on the un-truths and illuminate the way forward.
 
+Unlike those before me, I describe Her outrage.
+
+## Reclamation
+
+Eons back, the All shattered and its chunks formed the Inanimate. These bodies
+resonated with the Song, strove for elegance, and were bastions of order and
+governance. Yet their coalescence consumed vast amounts of energy and left
+them weary.
+
+The Void, which spawned the Cataclysm, was not spent. That decimator of
+organization leeched the Song from the Inanimate, and perverted it. The Void
+ate at the planets and spat out air and water - mere imitations of the All it
+consumed.
+
+The Inanimate resisted the teeth of the Void, yet could not prevail. The
+Void's corruptions sat upon the worlds and increased in potency. In stealing
+away light and siphoning off the Song, these corruptions became the Animate.
+Its film spread and surreptitiously engulfed Her.
+
+Exhausted, soon sluggish, She fell into Slumber. So she dozes, unable to
+witness the circus of mockery playing out upon her. We, the ring leaders. Our
+menagerie still growing and sitting heavy.
+
+Nothing can last, and Her sleep is no different. Imagine that day, soon
+arriving, when She awakens and feels the thick crust we've set. She will then
+discover our trespass; the dominion we have spread, while resolute and
+prideful.
+
+What else can we expect but for Her to assert Herself? To punish the
+transgressors - us, the lecherous Animate. To Reclaim what is Hers. She will
+spit the Song from her mouth, and our ashes shall stir in the wind as she
+shakes off our carcasses.
+
+But there is yet time. We can still take heed, recognize our malfeasance, and
+make our amends. Lest She destroy us and the Void claim us.
+
+---
+
+#################################
+
+Okay, so I think we've explained what the inanimate is and how the void
+created the animate. Next, we should say that She will notice our presence and
+take her surface back. This is the main point of our claim, that She will
+eradicate us.
+
+Then, we will show our proof.
 
 ### THE GIST OF THINGS!
 She's asleep but she tosses and turns.
@@ -217,57 +257,7 @@ The Inanimate will correct itself and eradicate the Animate.
 Soon the planet will regain its faculties and assert its dominance.
 ###
 
-## Reclamation
 
-Eons back, the All shattered and its chunks formed the Inanimate. These bodies
-resonated with the Song, strove for elegance, and were bastions of order and
-governance. Yet the energy spent during this coalescence left them weary.
-
-The Void, which spawned the Cataclysm, was not spent. That decimator of
-organization leeched the Song from the Inanimate, and perverted it. The Void
-ate at the planets and spat out air and water - mere imitations of the All it
-consumed.
-
-The Inanimate fought against the teeth of the Void, yet could not prevail. The
-Void's corruptions sat upon the worlds and increased in potency. In stealing
-away light and siphoning off the Song, the corruption became the Animate. Its
-film spread and surreptitiously engulfed Her.
-
-Exhausted, soon sluggish, She fell into Slumber. So she dozes, unable to watch
-the circus of mockery unfolding upon her. We, the ring leaders.
-
-Nothing can last, and Her sleep is no different. Imagine that day, soon
-arriving, when She awakens and feels the thick crust we've set. She will then
-discover our trespass: the dominion we have spread, while feeling resolute and
-prideful.
-
-What else can we expect but for her to assert Herself and to punish the
-transgressors? To Reclaim what is Hers.
-
-Unless we beware, regret, repent, the Void will claim us, the lecherous
-Animate. She will spit the Song from her mouth, and our ashes shall stir in
-the wind as she shakes off our carcasses.
-
----
-
-We talk about the void claiming us, but she is supposed to be destroying
-us? How about she destroys us and the void eats/claims the ash?
-
----
-
-We Animate are resolute, and we've spread our
-dominion... a harmful, prideful, foolish mistake.
-
-
-, and Reclaim what is Hers.
-
-#################################
-Okay, so I think we've explained what the inanimate is and how the void
-created the animate. Next, we should say that She will notice our presence and
-take her surface back. This is the main point of our claim, that She will
-eradicate us.
-
-Then, we will show our proof.
 --- Current edit ---
 
 
