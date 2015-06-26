@@ -183,12 +183,20 @@ enacts and surely _is_.
 
 Unlike those before me, I describe Her outrage.
 
-We do all know of the Song, the Inanimate, and, at last, the Animate. But
-our current understanding is flawed. We know little of what happens now, and
-nothing of what will soon come to be.
+We have always taken the story of our origins to be truth. Hitherto, there has
+been no reason to question them. But our current understanding is flawed. It
+tells us little about what happens now, and nothing of what will soon come to
+be.
+
+Events transpiring are warnings and alerts and we must take notice. She's
+giving us a chance to change our ways.
 
 Her point of view is one we ignore, however crucial it is to our now-fevered
-plight.
+plight. We must shed the fanciful and the arrogant blindness we have always
+worn, and lay a hand to the earth to feel how we've harmed Her.
+
+I must cast a light on the un-truths and illuminate the way forward.
+
 
 ### THE GIST OF THINGS!
 She's asleep but she tosses and turns.
@@ -213,20 +221,55 @@ Soon the planet will regain its faculties and assert its dominance.
 
 Eons back, the All shattered and its chunks formed the Inanimate. These bodies
 resonated with the Song, strove for elegance, and were bastions of order and
-governance.
-
-The effort of this coalescence and modification eventually exhausted them,
-however. They became sluggish, and later fell in to slumber.
+governance. Yet the energy spent during this coalescence left them weary.
 
 The Void, which spawned the Cataclysm, was not spent. That decimator of
-organization leeched the Song from the Animate, and perverted it. The Void ate
-at the planets and spat out mere imitations of the All it consumed - air and
-water.
+organization leeched the Song from the Inanimate, and perverted it. The Void
+ate at the planets and spat out air and water - mere imitations of the All it
+consumed.
 
-These corruptions then sat and increased in potency. In stealing away the
-light and siphoning off the Song, they became the Animate - a circus of
-mockery. Their film surreptitiously engulfed Her. So She dozes, hardly
-noticing Her covering.
+The Inanimate fought against the teeth of the Void, yet could not prevail. The
+Void's corruptions sat upon the worlds and increased in potency. In stealing
+away light and siphoning off the Song, the corruption became the Animate. Its
+film spread and surreptitiously engulfed Her.
+
+Exhausted, soon sluggish, She fell into Slumber. So she dozes, unable to watch
+the circus of mockery unfolding upon her. We, the ring leaders.
+
+Nothing can last, and Her sleep is no different. Imagine that day, soon
+arriving, when She awakens and feels the thick crust we've set. She will then
+discover our trespass: the dominion we have spread, while feeling resolute and
+prideful.
+
+What else can we expect but for her to assert Herself and to punish the
+transgressors? To Reclaim what is Hers.
+
+Unless we beware, regret, repent, the Void will claim us, the lecherous
+Animate. She will spit the Song from her mouth, and our ashes shall stir in
+the wind as she shakes off our carcasses.
+
+---
+
+We talk about the void claiming us, but she is supposed to be destroying
+us? How about she destroys us and the void eats/claims the ash?
+
+---
+
+We Animate are resolute, and we've spread our
+dominion... a harmful, prideful, foolish mistake.
+
+
+, and Reclaim what is Hers.
+
+#################################
+Okay, so I think we've explained what the inanimate is and how the void
+created the animate. Next, we should say that She will notice our presence and
+take her surface back. This is the main point of our claim, that She will
+eradicate us.
+
+Then, we will show our proof.
+--- Current edit ---
+
 
 But the tossing of the fitful Sleeper is evidence She rouses.
 
@@ -243,8 +286,7 @@ us - to stop us. But our roots spread afar.
 
 Our smoke lengthens Her sonorous slumber, and our soot fogs Her perception. But She will not sleep forever.
 
-Imagine that day, soon arriving, when She awakens and feels the thick crust
-we've set. She will discover our trespass, and Reclaim what is Hers.
+#TODO: This is probably the next part we want to use above...
 
 Her spine shall burst forth from the forests which strangle and stifle
 cornice. Her fingers will claw through the plains and yawn chasms. Her skin to
@@ -281,9 +323,6 @@ Her wrath and retribution are nigh and there will be no corner where Her
 revenge does not strike. Then may she become animated in a way that not even
 we can. When she splits open her hide and eats the eaters.
 
-Unless we beware, regret, repent, the Void will claim us, the lecherous
-Animate. She will spit the Song from her mouth, and our ashes shall stir in
-the wind as she shakes off our carcasses.
 
 We sit on the instrument's strings, dampening the chords.
 
