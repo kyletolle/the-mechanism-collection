@@ -218,7 +218,7 @@ prideful.
 
 What else can we expect but for Her to assert Herself? To punish the
 transgressors - us, the lecherous Animate. To Reclaim what is Hers. She will
-spit the Song from her mouth, and our ashes shall stir in the wind as she
+spit the Song from Her mouth, and our ashes shall stir in the wind as She
 shakes off our carcasses.
 
 ---
