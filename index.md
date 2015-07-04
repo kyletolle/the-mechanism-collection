@@ -221,8 +221,6 @@ transgressors - us, the lecherous Animate. To Reclaim what is Hers. She will
 spit the Song from Her mouth, and shake off our carcasses - our ashes stirring
 in the wind.
 
----
-
 It began with the worms. Tunneling and devouring the surface of the world.
 Others then learned this tactic and delved deeper yet. They marred and further
 perverted the All... Causing an itch throughout the Inanimate. But all
