@@ -197,8 +197,7 @@ Unlike those before me, I describe Her outrage.
 
 Eons back, the All shattered and its chunks formed the Inanimate. These bodies
 resonated with the Song, strove for elegance, and were bastions of order and
-governance. Yet their coalescence consumed vast amounts of energy and left
-them weary.
+governance. Yet their coalescence drained them of energy and left them weary.
 
 The Void, which spawned the Cataclysm, was not spent. That decimator of
 organization leeched the Song from the Inanimate, and perverted it. The Void
@@ -210,8 +209,8 @@ Void's corruptions sat upon the worlds and increased in potency. In stealing
 away light and siphoning off the Song, these corruptions became the Animate.
 Its film spread and surreptitiously engulfed Her.
 
-Exhausted, soon sluggish, She fell into Slumber. So she dozes, unable to
-witness the circus of mockery playing out upon her. We, the ring leaders. Our
+Exhausted, soon sluggish, She fell into slumber. So She dozes, unable to
+witness the circus of mockery playing out upon Her. We, the ring leaders. Our
 menagerie still growing and sitting heavy.
 
 Nothing can last, and Her sleep is no different. Imagine that day, soon
@@ -229,62 +228,48 @@ make our amends. Lest She destroy us and the Void claim us.
 
 ---
 
-#################################
-
-Okay, so I think we've explained what the inanimate is and how the void
-created the animate. Next, we should say that She will notice our presence and
-take her surface back. This is the main point of our claim, that She will
-eradicate us.
-
-Then, we will show our proof.
-
-### THE GIST OF THINGS!
-She's asleep but she tosses and turns.
-But it's gotten worse.
-It began with the worms, digging and itching.
-But what really set her off was the smoke from our fires.
-Then she realizes that we've covered her and are wearing her down.
-She starts to fight back with earth quakes and sees all the Animate that are
-smothering her in various ways.
-She then changes the surface to try to get rid of us. That gives rise to the
-mountains, valleys, and volcanoes.
-We then fight back further. Trying to spread dominion and further delving.
-This only aggravates her more. We haven't been able to lull her back to sleep.
-As she gains more energy, we'll be in more trouble.
-Soon her defenses will be back up, which is the threat of her Reclaming her
-surface.
-The Inanimate will correct itself and eradicate the Animate.
-Soon the planet will regain its faculties and assert its dominance.
-###
-
-
---- Current edit ---
-
-
-But the tossing of the fitful Sleeper is evidence She rouses.
-
-It began with the worms. Devouring the surface of the world; tunneling and
-delving. Causing an itch that stirred the Inanimate.
-
-But all creeping creatures on this Earth are to Her as mites, which scurry and
-burrow. We grow more energetic each day, and unwittingly drawing attention to
+It began with the worms. Tunneling and devouring the surface of the world.
+Other creatures soon learned this tactic and delved deeper yet. They marred
+and further perverted the All... Causing an itch throughout the Inanimate. But
+all creatures creep across this Earth and are to Her as mites, which scurry
+and burrow. We grow more energetic each day, and unwittingly draw attention to
 our actions.
 
-Do not the grounds tremble, oceans surge, winds topple, and fires devour?
-Daily does it worsen. Her surface erupts, contorts, and heaves in reaction to
-us - to stop us. But our roots spread afar.
+The tossing of the fitful sleeper is already evidence She rouses. Do not the
+grounds tremble, oceans surge, winds topple, and fires devour?
 
-Our smoke lengthens Her sonorous slumber, and our soot fogs Her perception. But She will not sleep forever.
+What was once flat, unbroken plains is now a fractured landscape; the evidence
+of Her self-defense. Attempting to soothe the itch. Mountains thrust upward to
+break free from the sticking growths. Valleys drain away water which would
+otherwise spread, sit, and smother Her. Winds buffet and erode the purchases
+we hold. Storms and quakes and floods all attempt to eradicate the Animate and
+return serenity to the Inanimate.
 
-#TODO: This is probably the next part we want to use above...
+Every manner of disaster we call 'natural' is a retaliation for our invasion.
+An exercise in restoring what once was: the great calm. Daily does it worsen.
+Her surface erupts, contorts, and heaves with revulsion
+- to stop us. But our roots spread afar.
+
+Our smoke lengthens Her sonorous slumber, and our soot fogs Her perception.
+But She will not sleep forever.
+
+Our residence is hallowed ground. Now tarnished, sullied, abused through
+malice, bickering, and thoughtlessness.
+
+There is no denying the grief we've caused; that which She shall smell acutely
+and make herself rid of.
+
+Her wrath and retribution are nigh and there will be no corner where Her
+revenge does not strike. Then may she become animated in a way that not even
+we can. When she splits open her hide and eats the eaters.
 
 Her spine shall burst forth from the forests which strangle and stifle
 cornice. Her fingers will claw through the plains and yawn chasms. Her skin to
 slough off our civilizations - pestilence trespassing.
 
 Oceans shall boil to a tumult. Rivers shall spread and drown the land which
-shakes in wrath. The skys will darken and winds will conspire to great storms.
-Cataclysmic clouds creeping, crushing, catalyzing conversion.
+shakes in wrath. The skies will darken and winds will conspire to great
+storms. Cataclysmic clouds creeping, crushing, catalyzing conversion.
 
 Magma vehemently vomited will crystallize in flight; stinging as it litters
 the ground. Spitting poisonous plumes and wasted tears, this Fourth Mechanism
@@ -300,20 +285,6 @@ which to fall, and mountains but dirt to be cast over us?
 She will grow more desperate; increasingly violent. Not to rest until She has
 purged herself of usurpers and encroachers.
 
-The Animate is resolute, and we've spread our dominion. A harmful, prideful,
-foolish mistake.
-
-Our residence is hallowed ground. Now tarnished, sullied, abused through
-malice, bickering, and thoughtlessness.
-
-There is no denying the grief we've caused; that which She shall smell acutely
-and make herself rid of.
-
-Her wrath and retribution are nigh and there will be no corner where Her
-revenge does not strike. Then may she become animated in a way that not even
-we can. When she splits open her hide and eats the eaters.
-
-
 We sit on the instrument's strings, dampening the chords.
 
 She will strum and She will be heard.
@@ -321,6 +292,32 @@ She will strum and She will be heard.
 ---
 
 # Fragments
+
+We've explained what the inanimate is and how the void created the animate. We
+should next say that She will notice our presence and take her surface back.
+This is the main point of our claim, that She will eradicate us. Then, we will
+show our proof.
+
+---
+
+She's asleep but she tosses and turns.
+But it's gotten worse.
+It began with the worms, digging and itching.
+But what really set her off was the smoke from our fires.
+Then she realizes that we've covered her and are wearing her down.
+She starts to fight back with earth quakes and sees all the Animate that are
+smothering her in various ways.
+She then changes the surface to try to get rid of us. That gives rise to the
+mountains, valleys, and volcanoes.
+We then fight back further. Trying to spread dominion and further delving.
+This only aggravates her more. We haven't been able to lull her back to sleep.
+As she gains more energy, we'll be in more trouble.
+Soon her defenses will be back up, which is the threat of her Reclaiming her
+surface.
+The Inanimate will correct itself and eradicate the Animate.
+Soon the planet will regain its faculties and assert its dominance.
+
+---
 
 The Void didn't have a large part in the first three, but perhaps it has more
 of a role in the Fourth. "The Void will claim us."
