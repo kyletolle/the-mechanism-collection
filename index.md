@@ -221,9 +221,6 @@ transgressors - us, the lecherous Animate. To Reclaim what is Hers. She will
 spit the Song from her mouth, and our ashes shall stir in the wind as she
 shakes off our carcasses.
 
-But there is yet time. We can still take heed, recognize our malfeasance, and
-make our amends. Lest She destroy us and the Void claim us.
-
 ---
 
 It began with the worms. Tunneling and devouring the surface of the world.
@@ -268,95 +265,20 @@ Magma vehemently vomited will crystallize in flight, stinging as it litters
 the ground. Spitting poisonous plumes and wasted tears, this Fourth Mechanism
 will plunder us, the virus, of our strength.
 
-And so we shall find ourselves, battling for a place on which we have no
-claim.
-
-We will revolt. Ever waring, never conquering. Striving to thwart Her designs
-by blasting, marring, delving deeper. Though, what are tunnels but graves in
-which to fall, and mountains but dirt to be cast over us?
-
 She will grow more desperate; increasingly violent. Not to rest until She has
 purged Herself of usurpers and encroachers.
+
+And so we shall find ourselves, battling for a place on which we have no
+claim. Ever waring, never conquering. Striving to thwart Her designs by
+blasting, marring, delving deeper. Though, what are tunnels but graves in
+which to fall, and mountains but dirt to be cast over us?
+
+But there is yet time to change the outcome. We must take heed, recognize our
+malfeasance, and make our amends. Do not dig, chop, burn, or build. We must
+live without impact, and go unnoticed. Harvest only the Animate needed to
+survive. Live quietly and without consequence. Lest She destroy us and the
+Void claim us.
 
 We sit on the instrument's strings, dampening the chords. But She will strum
 and She will be heard.
 
----
-
-# Fragments
-
-We've explained what the inanimate is and how the void created the animate. We
-should next say that She will notice our presence and take her surface back.
-This is the main point of our claim, that She will eradicate us. Then, we will
-show our proof.
-
----
-
-She's asleep but she tosses and turns.
-But it's gotten worse.
-It began with the worms, digging and itching.
-But what really set her off was the smoke from our fires.
-Then she realizes that we've covered her and are wearing her down.
-She starts to fight back with earth quakes and sees all the Animate that are
-smothering her in various ways.
-She then changes the surface to try to get rid of us. That gives rise to the
-mountains, valleys, and volcanoes.
-We then fight back further. Trying to spread dominion and further delving.
-This only aggravates her more. We haven't been able to lull her back to sleep.
-As she gains more energy, we'll be in more trouble.
-Soon her defenses will be back up, which is the threat of her Reclaiming her
-surface.
-The Inanimate will correct itself and eradicate the Animate.
-Soon the planet will regain its faculties and assert its dominance.
-
----
-
-The Void didn't have a large part in the first three, but perhaps it has more
-of a role in the Fourth. "The Void will claim us."
-
-Does she try to emit a smog to smother us and deprive us of light? When light
-can't reach the creatures, does life continue? Perhaps life needs light _and_
-the song to flourish?
-
-We want to keep these for use in another piece, but they don't belong here.
-
-Sandwiched between stunting growth and eviscerating heat, our Mother struggles
-outward.
-But what she spits is far sweeter than previous Mechanisms.
-
-A self-guided system is bound to fault; error.
-
-Oceans squatting on the depths; trenching the union between Void and Void.
-
-She coughs madly in storms of anguish.
-
-We are a film. Her fingers of the energetic crust pry loose from the plains.
-
-Mountains raised up and thrust bony appendages through the muck and mire.
-
-Earth is polluting the air with smog to kill us so she can feel the sun on
-her rocky crust again.
-
-We, the crawling muck, have only limited time before she is fully awakened and
-her attention is focused on us.
-
-But then, life is resolute.
-It desires to cover and consume and feed itself, gorging to as to multiply.
-
-Unless we repent our evil ways and live without impact... go unnoticed... we
-shall be underneath the soil, fire eating our air, while mountains topple over
-into the pits that have opened under us, and we shall be buried, dead, and
-forever resented for our malfeasance.
-
-Storms and quakes and floods all attempt to eradicate the Animate and
-return serenity to the Inanimate.
-
-
----
-
-Do not dig, chop, carve, or burn. We must live quietly. Without consequence.
-Take only what we need from the land, since this is only destroying other
-Animate, but leave no other traces.
-
-tarnished, sullied
-malice bickering
