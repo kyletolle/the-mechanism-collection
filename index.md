@@ -179,6 +179,103 @@ enacts and surely _is_.
 
 ## The Fourth Mechanism
 
+### Preface
+
+We have always taken the story of our origins to be truth. Hitherto, there has
+been no reason to question it. But our current understanding is flawed. It
+tells us little about what happens now, and nothing of what soon comes.
+
+Her point of view is one we ignore, however crucial it is to our now-fevered
+plight. We must shed the fanciful and arrogant blindness we have always
+worn, and lay a hand to the ground to feel how we've harmed Her.
+
+Unlike those before me, I describe Her outrage.
+
 ### Reclamation
 
-#### The Fourth is coming.
+Eons back, the All shattered and its chunks formed the Inanimate. These bodies
+resonated with the Song, strove for elegance, and were bastions of order and
+governance. Yet their coalescence drained them of energy and left them weary.
+
+The Void, which spawned the Cataclysm, was not spent. That decimator of
+organization leeched the Song from the Inanimate, and perverted it. The Void
+ate at the planets and spat out air and water - mere imitations of the All it
+consumed.
+
+The Inanimate resisted the teeth of the Void, yet could not prevail. The
+Void's corruptions sat upon the worlds and increased in potency. In stealing
+away light and siphoning off the Song, these corruptions became the Animate.
+Its film spread and surreptitiously engulfed Her.
+
+Exhausted, soon sluggish, She fell into slumber. So She dozes, unable to
+witness the circus of mockery playing out upon Her. We, the ring leaders. Our
+menagerie still growing and sitting heavy.
+
+Nothing can last, and Her sleep is no different. Imagine that day, soon
+arriving, when She awakens and feels the thick crust we've set. She will then
+discover our trespass; the dominion we have spread, while resolute and
+prideful.
+
+What else can we expect but for Her to assert Herself? To punish the
+transgressors - us, the lecherous Animate. To Reclaim what is Hers. She will
+spit the Song from Her mouth, and shake off our carcasses - our ashes stirring
+in the wind.
+
+---
+
+It began with the worms. Tunneling and devouring the surface of the world.
+Others then learned this tactic and delved deeper yet. They marred and further
+perverted the All... Causing an itch throughout the Inanimate. But all
+creatures creep across this Earth and are to Her pests, which scurry and
+burrow. We grow more energetic each day, and draw Her ire more acutely.
+
+The tossing of the fitful sleeper is already evidence She rouses. Do not the
+grounds tremble, oceans surge, winds topple, and fires devour?
+
+What was once serene, unbroken plains is now a fractured landscape; the
+evidence of Her self-defense. Attempting to soothe the itch. Mountains thrust
+upward through the sticking growths. Valleys drain away water which would
+otherwise spread, sit, and smother. Winds buffet and erode the purchases we
+hold.
+
+Every manner of disaster we call 'natural' is a retaliation for our invasion.
+An exercise in restoring what once was: the great calm. Daily does it worsen.
+Her surface erupts, contorts, and heaves with revulsion - to stop us. But our
+roots spread afar.
+
+Our residence is hallowed, yet, through the grief we've wrought, now sullied.
+Smoke from our unending fires lengthens Her sonorous slumber, and our soot
+fogs Her perception. But She will not sleep forever.
+
+Her wrath and retribution are nigh, and Her revenge will reach every corner.
+Then may She become animated in a way that not even we can. When She splits
+open Her hide and eats the eaters.
+
+Her spine shall burst forth from the forests which strangle and stifle
+cornice. Her fingers will claw through the plains and yawn chasms. Her skin to
+slough off our civilizations - pestilence trespassing.
+
+Oceans shall boil to a tumult. Rivers shall spread and drown the land which
+shakes in wrath. The skies will darken as winds conspire to great storms.
+Cataclysmic clouds creeping, crushing; catalyzing conversion.
+
+Magma vomited will crystallize in flight, stinging as it litters the ground.
+Spitting poisonous plumes and wasted tears, this Fourth Mechanism will plunder
+us, the virus, of our strength.
+
+She will grow more desperate; increasingly violent. Not to rest until She has
+purged Herself of usurpers and encroachers.
+
+And so we shall find ourselves, battling for a place on which we have no
+claim. Ever waring, never conquering. Striving to thwart Her designs by
+blasting, marring, delving deeper. Though, what are tunnels but graves in
+which to fall, and mountains but dirt to be cast over us?
+
+However, there is yet time to change this outcome. We must take heed,
+recognize our malfeasance, and make amends. We must live without impact, and
+go unnoticed. Harvest only the Animate needed to survive. Live quietly and
+without consequence. Lest She destroy us and the Void claim us.
+
+We sit on the instrument's strings, dampening the chords. But She will strum
+and She will be heard.
+
