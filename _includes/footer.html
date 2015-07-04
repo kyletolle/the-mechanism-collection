@@ -5,8 +5,14 @@
     <div class="footer-col-1 column">
       <ul>
         <li>{{ site.title }}</li>
-        <li><a href="mailto:{{ site.email }}">{{ site.email }}</a></li>
+        <li>
+          <span class="text">{{ site.footer-url }}</span>
+        </li>
       </ul>
+    </div>
+
+    <div class="footer-col-1 column">
+      <p class="text"><a href="https://github.com/kyletolle/the-mechanism-collection/issues">Give feedback</a> on GitHub.</p>
     </div>
 
     <div class="footer-col-2 column">
@@ -49,11 +55,6 @@
         </li>
       </ul>
     </div>
-
-    <div class="footer-col-3 column">
-      <p class="text">{{ site.footer-url }}</p>
-    </div>
-
   </div>
 
 </footer>
