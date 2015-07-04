@@ -177,9 +177,9 @@ enacts and surely _is_.
 
 ---
 
-# The Fourth Mechanism
+## The Fourth Mechanism
 
-## Preface
+### Preface
 
 We have always taken the story of our origins to be truth. Hitherto, there has
 been no reason to question it. But our current understanding is flawed. It
@@ -191,7 +191,7 @@ worn, and lay a hand to the ground to feel how we've harmed Her.
 
 Unlike those before me, I describe Her outrage.
 
-## Reclamation
+### Reclamation
 
 Eons back, the All shattered and its chunks formed the Inanimate. These bodies
 resonated with the Song, strove for elegance, and were bastions of order and
