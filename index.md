@@ -218,15 +218,15 @@ prideful.
 
 What else can we expect but for Her to assert Herself? To punish the
 transgressors - us, the lecherous Animate. To Reclaim what is Hers. She will
-spit the Song from Her mouth, and our ashes shall stir in the wind as She
-shakes off our carcasses.
+spit the Song from Her mouth, and shake off our carcasses - our ashes stirring
+in the wind.
 
 ---
 
 It began with the worms. Tunneling and devouring the surface of the world.
-Other creatures soon learned this tactic and delved deeper yet. They marred
-and further perverted the All... Causing an itch throughout the Inanimate. But
-all creatures creep across this Earth and are to Her pests, which scurry and
+Others then learned this tactic and delved deeper yet. They marred and further
+perverted the All... Causing an itch throughout the Inanimate. But all
+creatures creep across this Earth and are to Her pests, which scurry and
 burrow. We grow more energetic each day, and draw Her ire more acutely.
 
 The tossing of the fitful sleeper is already evidence She rouses. Do not the
@@ -243,15 +243,13 @@ An exercise in restoring what once was: the great calm. Daily does it worsen.
 Her surface erupts, contorts, and heaves with revulsion - to stop us. But our
 roots spread afar.
 
-Our residence is hallowed, yet, through the grief we've wrought, now sullied
-by thoughtlessness.
-
+Our residence is hallowed, yet, through the grief we've wrought, now sullied.
 Smoke from our unending fires lengthens Her sonorous slumber, and our soot
 fogs Her perception. But She will not sleep forever.
 
-Her wrath and retribution are nigh and there will be no corner Her revenge
-does not strike. Then may She become animated in a way that not even we can.
-When She splits open Her hide and eats the eaters.
+Her wrath and retribution are nigh, and Her revenge will reach every corner.
+Then may She become animated in a way that not even we can. When She splits
+open Her hide and eats the eaters.
 
 Her spine shall burst forth from the forests which strangle and stifle
 cornice. Her fingers will claw through the plains and yawn chasms. Her skin to
@@ -261,9 +259,9 @@ Oceans shall boil to a tumult. Rivers shall spread and drown the land which
 shakes in wrath. The skies will darken as winds conspire to great storms.
 Cataclysmic clouds creeping, crushing; catalyzing conversion.
 
-Magma vehemently vomited will crystallize in flight, stinging as it litters
-the ground. Spitting poisonous plumes and wasted tears, this Fourth Mechanism
-will plunder us, the virus, of our strength.
+Magma vomited will crystallize in flight, stinging as it litters the ground.
+Spitting poisonous plumes and wasted tears, this Fourth Mechanism will plunder
+us, the virus, of our strength.
 
 She will grow more desperate; increasingly violent. Not to rest until She has
 purged Herself of usurpers and encroachers.
@@ -273,11 +271,10 @@ claim. Ever waring, never conquering. Striving to thwart Her designs by
 blasting, marring, delving deeper. Though, what are tunnels but graves in
 which to fall, and mountains but dirt to be cast over us?
 
-But there is yet time to change the outcome. We must take heed, recognize our
-malfeasance, and make our amends. Do not dig, chop, burn, or build. We must
-live without impact, and go unnoticed. Harvest only the Animate needed to
-survive. Live quietly and without consequence. Lest She destroy us and the
-Void claim us.
+However, there is yet time to change this outcome. We must take heed,
+recognize our malfeasance, and make amends. We must live without impact, and
+go unnoticed. Harvest only the Animate needed to survive. Live quietly and
+without consequence. Lest She destroy us and the Void claim us.
 
 We sit on the instrument's strings, dampening the chords. But She will strum
 and She will be heard.
