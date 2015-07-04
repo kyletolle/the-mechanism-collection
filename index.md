@@ -189,8 +189,6 @@ Her point of view is one we ignore, however crucial it is to our now-fevered
 plight. We must shed the fanciful and arrogant blindness we have always
 worn, and lay a hand to the ground to feel how we've harmed Her.
 
-I must cast a light on the un-truths and illuminate the way forward.
-
 Unlike those before me, I describe Her outrage.
 
 ## Reclamation
@@ -231,47 +229,42 @@ make our amends. Lest She destroy us and the Void claim us.
 It began with the worms. Tunneling and devouring the surface of the world.
 Other creatures soon learned this tactic and delved deeper yet. They marred
 and further perverted the All... Causing an itch throughout the Inanimate. But
-all creatures creep across this Earth and are to Her as mites, which scurry
-and burrow. We grow more energetic each day, and unwittingly draw attention to
-our actions.
+all creatures creep across this Earth and are to Her pests, which scurry and
+burrow. We grow more energetic each day, and draw Her ire more acutely.
 
 The tossing of the fitful sleeper is already evidence She rouses. Do not the
 grounds tremble, oceans surge, winds topple, and fires devour?
 
-What was once flat, unbroken plains is now a fractured landscape; the evidence
-of Her self-defense. Attempting to soothe the itch. Mountains thrust upward to
-break free from the sticking growths. Valleys drain away water which would
-otherwise spread, sit, and smother Her. Winds buffet and erode the purchases
-we hold. Storms and quakes and floods all attempt to eradicate the Animate and
-return serenity to the Inanimate.
+What was once serene, unbroken plains is now a fractured landscape; the
+evidence of Her self-defense. Attempting to soothe the itch. Mountains thrust
+upward through the sticking growths. Valleys drain away water which would
+otherwise spread, sit, and smother. Winds buffet and erode the purchases we
+hold.
 
 Every manner of disaster we call 'natural' is a retaliation for our invasion.
 An exercise in restoring what once was: the great calm. Daily does it worsen.
-Her surface erupts, contorts, and heaves with revulsion
-- to stop us. But our roots spread afar.
+Her surface erupts, contorts, and heaves with revulsion - to stop us. But our
+roots spread afar.
 
-Our smoke lengthens Her sonorous slumber, and our soot fogs Her perception.
-But She will not sleep forever.
+Our residence is hallowed, yet, through the grief we've wrought, now sullied
+by thoughtlessness.
 
-Our residence is hallowed ground. Now tarnished, sullied, abused through
-malice, bickering, and thoughtlessness.
+Smoke from our unending fires lengthens Her sonorous slumber, and our soot
+fogs Her perception. But She will not sleep forever.
 
-There is no denying the grief we've caused; that which She shall smell acutely
-and make herself rid of.
-
-Her wrath and retribution are nigh and there will be no corner where Her
-revenge does not strike. Then may she become animated in a way that not even
-we can. When she splits open her hide and eats the eaters.
+Her wrath and retribution are nigh and there will be no corner Her revenge
+does not strike. Then may She become animated in a way that not even we can.
+When She splits open Her hide and eats the eaters.
 
 Her spine shall burst forth from the forests which strangle and stifle
 cornice. Her fingers will claw through the plains and yawn chasms. Her skin to
 slough off our civilizations - pestilence trespassing.
 
 Oceans shall boil to a tumult. Rivers shall spread and drown the land which
-shakes in wrath. The skies will darken and winds will conspire to great
-storms. Cataclysmic clouds creeping, crushing, catalyzing conversion.
+shakes in wrath. The skies will darken as winds conspire to great storms.
+Cataclysmic clouds creeping, crushing; catalyzing conversion.
 
-Magma vehemently vomited will crystallize in flight; stinging as it litters
+Magma vehemently vomited will crystallize in flight, stinging as it litters
 the ground. Spitting poisonous plumes and wasted tears, this Fourth Mechanism
 will plunder us, the virus, of our strength.
 
@@ -283,11 +276,10 @@ by blasting, marring, delving deeper. Though, what are tunnels but graves in
 which to fall, and mountains but dirt to be cast over us?
 
 She will grow more desperate; increasingly violent. Not to rest until She has
-purged herself of usurpers and encroachers.
+purged Herself of usurpers and encroachers.
 
-We sit on the instrument's strings, dampening the chords.
-
-She will strum and She will be heard.
+We sit on the instrument's strings, dampening the chords. But She will strum
+and She will be heard.
 
 ---
 
@@ -356,3 +348,15 @@ shall be underneath the soil, fire eating our air, while mountains topple over
 into the pits that have opened under us, and we shall be buried, dead, and
 forever resented for our malfeasance.
 
+Storms and quakes and floods all attempt to eradicate the Animate and
+return serenity to the Inanimate.
+
+
+---
+
+Do not dig, chop, carve, or burn. We must live quietly. Without consequence.
+Take only what we need from the land, since this is only destroying other
+Animate, but leave no other traces.
+
+tarnished, sullied
+malice bickering
