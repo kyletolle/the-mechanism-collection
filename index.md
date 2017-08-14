@@ -265,7 +265,7 @@ She will grow more desperate; increasingly violent. Not to rest until She has
 purged Herself of usurpers and encroachers.
 
 And so we shall find ourselves, battling for a place on which we have no
-claim. Ever waring, never conquering. Striving to thwart Her designs by
+claim. Ever warring, never conquering. Striving to thwart Her designs by
 blasting, marring, delving deeper. Though, what are tunnels but graves in
 which to fall, and mountains but dirt to be cast over us?
 
